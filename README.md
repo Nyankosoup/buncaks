@@ -13,4 +13,4 @@
 <p align="center">
  ♪ ͡ໃ﹒﹕۪　　　　　　I YUMES WITH ASGORE AND FRANK (Spooky Month) !!
 <p align="center">
-IMPORTANT (idk lowk): i have social anxiety (and GAD?) which mean i struggle socializing with people (even for my friends) and i might have a hard time to read your tones whether its good or bad, im worried about things. i easily get annoyed over things, even if it basic (i regret it after).
+IMPORTANT (idk lowk): i have social anxiety (and GAD?) which mean i struggle socializing with people (even for my friends) and i might have a hard time to read your tones whether its good or bad, im worried about things. i easily get annoyed over things, even if it basic (i regret it after).<img width="20" height="20" alt="IMG_7565" src="https://github.com/user-attachments/assets/047c999d-d07e-4cc5-a49d-7877f44e1f5c" />
