@@ -1,5 +1,4 @@
 
-
 <p align="center">
 <img width="400" height="225" alt="95A9CEAE-8843-4302-9098-0746FA47BD6E" src="https://github.com/user-attachments/assets/67242405-be82-40d0-9f23-7fef4dde8485" />
 <p align="center">
@@ -19,4 +18,4 @@
 <p align="center">
 IMPORTANT (idk lowk): i have social anxiety (and GAD?) which mean i struggle socializing with people (even for my friends) and i might have a hard time to read your tones whether its good or bad, im worried about things. i easily get annoyed over things, even if it basic (i regret it after).<img width="20" height="20" alt="IMG_7565" src="https://github.com/user-attachments/assets/047c999d-d07e-4cc5-a49d-7877f44e1f5c" />
 <p align="center">
-e⠀ ⑅ ̣̣  ㅤ⠀⨷  ໃ ͜͝ ㅤ⠀  ͜𓈒 ࣪♫ྀི𓏼 ⠀⠀ ໒̣ ֪ ㅤ⠀🅑🅤🅝♡ྀི ⠀⠀⠀𓈒݂݂𓏴𓏴
+<img width="20" height="20" alt="IMG_3761" src="https://github.com/user-attachments/assets/75944787-5398-4d08-bca6-25cc47c87958" />⠀ ⑅ ̣̣  ㅤ⠀⨷  ໃ ͜͝ ㅤ⠀  ͜𓈒 ࣪♫ྀི𓏼 ⠀⠀ ໒̣ ֪ ㅤ⠀🅑🅤🅝♡ྀི ⠀⠀⠀𓈒݂݂𓏴𓏴
