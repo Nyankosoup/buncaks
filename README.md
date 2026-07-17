@@ -21,3 +21,12 @@
 𝖨𝖬𝖯𝖮𝖱𝖳𝖠𝖭𝖳 (𝗂𝖽𝗄 𝗅𝗈𝗐𝗄): 𝗂 𝗁𝖺𝗏𝖾 𝗌𝗈𝖼𝗂𝖺𝗅 𝖺𝗇𝗑𝗂𝖾𝗍𝗒 (𝖺𝗇𝖽 𝖦𝖠𝖣?) 𝗐𝗁𝗂𝖼𝗁 𝗆𝖾𝖺𝗇 𝗂 𝗌𝗍𝗋𝗎𝗀𝗀𝗅𝖾 𝗌𝗈𝖼𝗂𝖺𝗅𝗂𝗓𝗂𝗇𝗀 𝗐𝗂𝗍𝗁 𝗉𝖾𝗈𝗉𝗅𝖾 (𝖾𝗏𝖾𝗇 𝖿𝗈𝗋 𝗆𝗒 𝖿𝗋𝗂𝖾𝗇𝖽𝗌) 𝖺𝗇𝖽 𝗂 𝗁𝖺𝗏𝖾 𝖺 𝗁𝖺𝗋𝖽 𝗍𝗂𝗆𝖾 𝗍𝗈 𝗋𝖾𝖺𝖽 𝗒𝗈𝗎𝗋 𝗍𝗈𝗇𝖾𝗌 𝗐𝗁𝖾𝗍𝗁𝖾𝗋 𝗂𝗍𝗌 𝗀𝗈𝗈𝖽 𝗈𝗋 𝖻𝖺𝖽, 𝗂𝗆 𝗐𝗈𝗋𝗋𝗂𝖾𝖽 𝖺𝖻𝗈𝗎𝗍 𝗍𝗁𝗂𝗇𝗀𝗌. 𝗂 𝖾𝖺𝗌𝗂𝗅𝗒 𝗀𝖾𝗍 𝖺𝗇𝗇𝗈𝗒𝖾𝖽 𝗈 𝗆𝖺𝖽 𝗈𝗏𝖾𝗋 𝗍𝗁𝗂𝗇𝗀𝗌, 𝖾𝗏𝖾𝗇 𝗂𝖿 𝗂𝗍 𝖻𝖺𝗌𝗂𝖼 (𝖺𝗇𝖽... 𝗂 𝗋𝖾𝗀𝗋𝖾𝗍 𝗂𝗍 𝖺𝖿𝗍𝖾𝗋).<img width="20" height="20" alt="IMG_7565" src="https://github.com/user-attachments/assets/047c999d-d07e-4cc5-a49d-7877f44e1f5c" />
 <p align="center">
 <img width="20" height="20" alt="IMG_3761" src="https://github.com/user-attachments/assets/75944787-5398-4d08-bca6-25cc47c87958" />⠀ ⑅ ̣̣  ㅤ⠀⨷  ໃ ͜͝ ㅤ⠀  ͜𓈒 ࣪♫ྀི𓏼 ⠀⠀ ໒̣ ֪ ㅤ⠀🅑🅤🅝♡ྀི ⠀⠀⠀𓈒݂݂𓏴𓏴
+
+<div align="center">
+<details>
+  <summary><ins>ohh what's this?</ins></summary>
+
+  <div align="center">
+        my son. leonard. say hi. SAY HI. NOW. (OC!!)
+  <img width="210" height="200" alt="53CACFCF-8A2A-4F9C-9D0A-27DA7E222610" src="https://github.com/user-attachments/assets/9d9d32a9-fe91-4eab-97c8-2b7e6f2ba67e" />
+
