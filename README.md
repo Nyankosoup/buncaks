@@ -26,7 +26,8 @@
 <details>
   <summary><ins>ohh what's this?</ins></summary>
 
-  <div align="center">
-        my son. leonard. say hi. SAY HI. NOW. (OC!!)
+  <p align="center">
+my son. leonard. say hi. SAY HI. NOW. (OC!!)
+<p align="center">
   <img width="210" height="200" alt="53CACFCF-8A2A-4F9C-9D0A-27DA7E222610" src="https://github.com/user-attachments/assets/9d9d32a9-fe91-4eab-97c8-2b7e6f2ba67e" />
 
