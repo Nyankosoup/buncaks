@@ -31,8 +31,12 @@ my son. leonard. say hi. SAY HI. NOW. (OC!!)
 <p align="center">
   <img width="430" height="225" alt="53CACFCF-8A2A-4F9C-9D0A-27DA7E222610" src="https://github.com/user-attachments/assets/9d9d32a9-fe91-4eab-97c8-2b7e6f2ba67e" />
 
+<p align="center">
   ᣟ ⠀⠀ 𓈒 💭 ͜͜ 𓐇
 
 <div align="center">
 <details>
-  <summary><ins>DNI LIST</ins></summary> ⠀
+  <summary><ins>𝖣𝖭𝖨 𝖫𝖨𝖲𝖳𝖲</ins></summary> 
+⠀<p align="center">
+PED0, Z00PHILES, RACIST, HOMOPHOBIC, Jokes About R×pe, Invalidates A Person's Pronouns / Gender / Identity. (if you Supports, participates, tolerates, or justify any of the above nty still dni.)
+
