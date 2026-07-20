@@ -22,9 +22,6 @@
 <p align="center">
 <img width="20" height="20" alt="IMG_3761" src="https://github.com/user-attachments/assets/75944787-5398-4d08-bca6-25cc47c87958" />⠀ ⑅ ̣̣  ㅤ⠀⨷  ໃ ͜͝ ㅤ⠀  ͜𓈒 ࣪♫ྀི𓏼 ⠀⠀ ໒̣ ֪ ㅤ⠀🅑🅤🅝♡ྀི ⠀⠀⠀𓈒݂݂𓏴𓏴
 
-<p align="center">
-  ᣟ ⠀⠀ 𓈒 💭 ͜͜ 𓐇
-
 
 <div align="center">
 <details>
@@ -41,4 +38,7 @@ PED0, Z00PHILES, RACIST, HOMOPHOBIC, Jokes About R×pe, Invalidates A Person's P
 my son. leonard. say hi. SAY HI. NOW. (OC!!)
 <p align="center">
   <img width="430" height="225" alt="53CACFCF-8A2A-4F9C-9D0A-27DA7E222610" src="https://github.com/user-attachments/assets/9d9d32a9-fe91-4eab-97c8-2b7e6f2ba67e" />
+
+  <p align="center">
+  ᣟ ⠀⠀ 𓈒 💭 ͜͜ 𓐇
 
