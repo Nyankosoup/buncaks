@@ -31,3 +31,8 @@ my son. leonard. say hi. SAY HI. NOW. (OC!!)
 <p align="center">
   <img width="430" height="225" alt="53CACFCF-8A2A-4F9C-9D0A-27DA7E222610" src="https://github.com/user-attachments/assets/9d9d32a9-fe91-4eab-97c8-2b7e6f2ba67e" />
 
+  ᣟ ⠀⠀ 𓈒 💭 ͜͜ 𓐇
+
+<div align="center">
+<details>
+  <summary><ins>DNI LIST</ins></summary> ⠀
