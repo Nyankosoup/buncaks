@@ -28,7 +28,7 @@
   <summary><ins>𝖣𝖭𝖨 𝖫𝖨𝖲𝖳𝖲</ins></summary>
 
 ⠀<p align="center">
-PED0, Z00PHILES, RACIST, HOMOPHOBIC, Jokes About R×pe (srs abuses, etc that is bad), not respecting me or other people, a very VERY RUDE PERSON, making fake rumors that is inappropriate. (if you Supports, participates, tolerates, or justify any of the above nty still dni.)
+PED0, Z00PHILES, RACIST, HOMOPHOBIC, Jokes About R×pe (srs abuses, etc that is bad), not respecting me or other people, a very VERY RUDE PERSON, making fake rumors that are inappropriate. (Note: if you enjoy inventing playful, harmless rumors about fictional characters, that's fine. but be careful.). (if you Supports, participates, tolerates, or justify any of the above nty still dni.)
 </div>
 </details>
       
