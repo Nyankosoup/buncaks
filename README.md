@@ -12,7 +12,7 @@
 <p align="center">
       ྀི.   ◟‿.                      ֪֪݃  
 <p align="center">
-𝖺𝗇𝗒𝗐𝗁𝗈. 𝗉𝗅𝖾𝖺𝗌𝖾 𝗂𝗇𝗍𝖾𝗋𝖺𝖼𝗍 𝗐𝗂𝗍𝗁 𝖼𝖺𝗎𝗍𝗂𝗈𝗇. 𝗂𝗆 𝗌𝖾𝗇𝗌𝗂𝗍𝗂𝗏𝖾. 
+𝖺𝗇𝗒𝗐𝗁𝗈. 𝗉𝗅𝖾𝖺𝗌𝖾 𝗂𝗇𝗍𝖾𝗋𝖺𝖼𝗍 𝗐𝗂𝗍𝗁 𝖼𝖺𝗎𝗍𝗂𝗈𝗇. 𝗂𝗆 𝗌𝖾𝗇𝗌𝗂𝗍𝗂𝗏𝖾. 𝖸𝖾𝗌 𝗒𝖾𝗌 𝖻𝗈𝖻 𝗏𝖾𝗅𝗌𝖾𝖻. 𝖸𝖾𝗌 𝖽𝖺𝗇𝖼𝖾. 𝖸𝖾𝗌 𝗐𝗁𝖺𝗍 𝖺𝗆 𝗂 𝖽𝗈𝗂𝗇𝗀
 <p align="center">
 <img width="230" height="120" alt="9898B180-2903-4A70-875D-07895997FE0A" src="https://github.com/user-attachments/assets/9ee41597-8720-4f7e-bc86-0e2327088099" />
 <p align="center">
