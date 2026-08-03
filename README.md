@@ -37,7 +37,7 @@ PED0, Z00PHILES, RACIST, HOMOPHOBIC, Jokes About R×pe (srs abuses, etc that is 
   <summary><ins>ohh what's this?</ins></summary>
 
   <p align="center">
-bro wip. this is for art dumps of my oc, sona. but here's a leopard seal.
+bro. if i saw something like like a SPOOKY MONTH cosplayer i will screech in pure happiness and shakes uncontrollably (irl). ESPECIALLY WHEN THEY COSPLAY FRANK I WILL FUCKING SCREAM AT THEM AND SMOOCH HIM??? AND TEAR OF MY SK IN HAPPINESS AND EXCITEMENT IDC WHAT CHAREACRTER IS IT IDC (except ufor the un*le fucking dni nd stay away from me.)
 <p align="center">
   <img width="430" height="225" alt="53CACFCF-8A2A-4F9C-9D0A-27DA7E222610" src="https://github.com/user-attachments/assets/9d9d32a9-fe91-4eab-97c8-2b7e6f2ba67e" />
   </div>
