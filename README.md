@@ -28,7 +28,7 @@
   <summary><ins>𝖣𝖭𝖨 𝖫𝖨𝖲𝖳𝖲</ins></summary>
 
 ⠀<p align="center">
-PED0, Z00PHILES, RACIST, HOMOPHOBIC, Jokes About R×pe (srs abuses, etc that is bad), not respecting me or other people, a very VERY RUDE PERSON, making fake rumors that are inappropriate. (Note: if you enjoy inventing playful, harmless rumors about fictional characters, that's fine. but be careful.). (if you Supports, participates, tolerates, or justify any of the above nty still dni.)
+PED0, Z00PHILES, RACIST, HOMOPHOBIC, Jokes About R×pe (abuses, etc that is bad), not respecting me or other people, a very VERY RUDE PERSON, making fake rumors that are inappropriate. (Note: if you enjoy inventing playful, harmless rumors about fictional characters, that's fine. but be careful.), . (if you Supports, participates, tolerates, or justify any of the above nty still dni.)
 </div>
 </details>
       
@@ -41,6 +41,17 @@ bro. if i saw something like like a SPOOKY MONTH cosplayer i will screech in pur
 <p align="center">
  <img width="220" height="216" alt="IMG_1218" src="https://github.com/user-attachments/assets/57498b1d-61eb-4781-82a3-6d6d2313ea77" />
  <img width="184" height="244" alt="IMG_1216" src="https://github.com/user-attachments/assets/0276a9c7-e078-4525-b030-2304d9d0ecfc" />
+
+  </div>
+</details>
+
+<div align="center">
+<details>
+  <summary><ins>?</ins></summary>
+
+<p align="center">
+oh you want me to write down my fandoms?! fine. inhales.
+SPOOKY MONTH, deltarune/undertale, Minecraft, pokemon, fnaf, fnf, HH/HB (sorry guys), Monster high, UUSMP, DDLC, MLP, ALNST, CRK, RDR2, MARVEL RIVALS, Scott Pilgrim, any osc, TADC, GNB, ANY ROBLOX, WIP
 
   </div>
 </details>
