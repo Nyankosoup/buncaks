@@ -39,7 +39,7 @@ PED0, Z00PHILES, RACIST, HOMOPHOBIC, Jokes About R×pe (srs abuses, etc that is 
   <p align="center">
 bro. if i saw something like like a SPOOKY MONTH cosplayer i will screech in pure happiness and shakes uncontrollably (irl). ESPECIALLY WHEN THEY COSPLAY FRANK I WILL FUCKING SCREAM AT THEM AND SMOOCH HIM??? AND TEAR OF MY SK IN HAPPINESS AND EXCITEMENT IDC WHAT CHAREACRTER IS IT IDC (except ufor the un*le fucking dni nd stay away from me.)
 <p align="center">
-  <img width="430" height="225" alt="53CACFCF-8A2A-4F9C-9D0A-27DA7E222610" src="https://github.com/user-attachments/assets/9d9d32a9-fe91-4eab-97c8-2b7e6f2ba67e" /><img width="184" height="244" alt="IMG_1216" src="https://github.com/user-attachments/assets/0276a9c7-e078-4525-b030-2304d9d0ecfc" />
+ <img width="220" height="216" alt="IMG_1217" src="https://github.com/user-attachments/assets/741cc58b-5341-4251-9059-c478ac580de4" /> <img width="184" height="244" alt="IMG_1216" src="https://github.com/user-attachments/assets/0276a9c7-e078-4525-b030-2304d9d0ecfc" />
 
   </div>
 </details>
