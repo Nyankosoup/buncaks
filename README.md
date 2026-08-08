@@ -45,17 +45,6 @@ bro. if i saw something like like a SPOOKY MONTH cosplayer i will screech in pur
   </div>
 </details>
 
-<div align="center">
-<details>
-  <summary><ins>?</ins></summary>
-
-<p align="center">
-oh you want me to write down my fandoms?! fine. inhales.
-SPOOKY MONTH, deltarune/undertale, Minecraft, pokemon, fnaf, fnf, HH/HB (sorry guys), Monster high, UUSMP, DDLC, MLP, ALNST, CRK, RDR2, MARVEL RIVALS, Scott Pilgrim, any osc, TADC, GNB, ANY ROBLOX, WIP
-
-  </div>
-</details>
-
   <p align="center">
   ᣟ ⠀⠀ 𓈒 💭 ͜͜ 𓐇
 
