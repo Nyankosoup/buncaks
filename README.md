@@ -37,7 +37,7 @@ PED0, Z00PHILES, RACIST, HOMOPHOBIC, Jokes About R×pe (abuses, etc that is bad)
   <summary><ins>ohh what's this?</ins></summary>
 
   <p align="center">
-bro. if i saw something like like a SPOOKY MONTH cosplayer i will screech in pure happiness and shakes uncontrollably (irl). ESPECIALLY WHEN THEY COSPLAY FRANK I WILL FUCKING SCREAM AT THEM AND SMOOCH HIM??? AND TEAR OF MY SK IN HAPPINESS AND EXCITEMENT IDC WHAT CHAREACRTER IS IT IDC (except ufor the un*le fucking dni nd stay away from me
+interact with extreme caution. interact with extreme caution. interact with extreme caution. interact with extreme caution. interact with extreme caution. interact with extreme caution. interact with extreme caution. interact with extreme caution. 
 
   </div>
 </details>
