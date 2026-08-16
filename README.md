@@ -35,7 +35,7 @@ PED0, Z00PHILES, RACIST, HOMOPHOBIC, Jokes About R×pe (abuses, etc that is bad)
       
 <div align="center">
 <details>
-  <summary><ins>sensitive cautions</ins></summary>
+  <summary><ins>cautions</ins></summary>
 
   <p align="center">
   Please don’t ever joke about my mental health. If you do, I will block you. If you’re my friend, I may lose interest in maintaining the friendship and start avoiding you, im uncomfortable. 
@@ -43,6 +43,8 @@ PED0, Z00PHILES, RACIST, HOMOPHOBIC, Jokes About R×pe (abuses, etc that is bad)
 If you complain about it or make posts about me ignoring you—such as, “Oh my God, this guy keeps ignoring me! Huhu… I’m so sad…”—just to get my attention or someone else’s, don’t expect me to feel bad or guilty. Your reaction is your responsibility, not mine.
 <p align="center">
 If you’ve crossed this boundary, I expect a sincere apology. Please respect my boundaries and PROMISE to never make jokes about my mental health again. (and my friend.. if you ignore this boundary, I may block you and distance myself from the friendship. If you make a mistake, apologize sincerely and respect my request moving forward.)
+<p align="center">
+i have a half-diagnose AUDHD, depression and anxiety. im pretty awkward, and a people pleaser. i get attached to things easily (and I don't know how to explain it properly, so please bare with me.)
 
   </div>
 </details>
