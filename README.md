@@ -35,10 +35,10 @@ PED0, Z00PHILES, RACIST, HOMOPHOBIC, Jokes About R×pe (abuses, etc that is bad)
       
 <div align="center">
 <details>
-  <summary><ins>ohh what's this?</ins></summary>
+  <summary><ins>sensitive cautions</ins></summary>
 
   <p align="center">
-interact with extreme caution. interact with extreme caution. interact with extreme caution. interact with extreme caution. interact with extreme caution. interact with extreme caution. interact with extreme caution. interact with extreme caution. 
+im disgusted of myself. (wip)
 
   </div>
 </details>
