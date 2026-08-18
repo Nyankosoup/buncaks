@@ -46,7 +46,7 @@ If you’ve crossed this boundary, I expect a sincere apology. Please respect my
 <p align="center">
 i have a half-diagnose AUDHD, depression and anxiety. im pretty awkward, also a people pleaser i fear. andi get attached to things easily (and I don't know how to explain it properly, so please bare with me.)
 <p align="center">
-oh and also, if you see me interacting with that smurf guy or bloo without whispering each other, its all satire! we both very playful. eheh so don't mind us, just try not to annoy both of us.
+oh and also, if you see me interacting with that smurf guy or bloo without whispering each other, its all satire. so don't mind us, just try not to annoy both of us.
 
   </div>
 </details>
