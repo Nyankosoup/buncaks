@@ -40,7 +40,7 @@ PED0, Z00PHILES, RACIST, HOMOPHOBIC, Jokes About R×pe (abuses, etc that is bad)
   <p align="center">
   Please don’t ever joke about my mental health. If you do, I will block you. If you’re my friend, I may lose interest in maintaining the friendship and start avoiding you, im uncomfortable. 
 <p align="center">
-If you complain about it or make posts about me ignoring you—such as, “Oh my God, this guy keeps ignoring me! Huhu… I’m so sad…”—just to get my attention or someone else’s, don’t expect me to feel bad or guilty. Your reaction is your responsibility, not mine.
+If you complain about it or make posts about me ignoring you—such as, “OH MY DAYS JARONA!!1!, this guy keeps ignoring me! Huhu… I’m so sad…”—just to get my attention or someone else’s, don’t expect me to feel bad or guilty. Your reaction is your responsibility, not mine.
 <p align="center">
 If you’ve crossed this boundary, I expect a sincere apology. Please respect my boundaries and PROMISE to never make jokes about my mental health again. (and my friend.. if you ignore this boundary, I may block you and distance myself from the friendship. If you make a mistake, apologize sincerely and respect my request moving forward.)
 <p align="center">
