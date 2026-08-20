@@ -46,7 +46,7 @@ If you’ve crossed this boundary, I expect a sincere apology. Please respect my
 <p align="center">
 i have a half-diagnose AUDHD, depression and anxiety. im pretty awkward.
 <p align="center">
-oh and also, if you see me interacting with that smurf guy or bloo without whispering each other, its all satire. so don't mind us, just try not to annoy both of us.
+oh and also, if you see me interacting with that smurf guy or bloo without whispering each other, its all satire for the playful act. so don't mind us, just try not to annoy both of us.
 
   </div>
 </details>
