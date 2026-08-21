@@ -33,7 +33,7 @@ DNI: 𝖯𝖤𝖣0, 𝖹00𝖯𝖧𝖨𝖫𝖤𝖲, 𝖱𝖠𝖢𝖨𝖲𝖳, �
 <p align="center">
 THIN ICES (close to getting blocked): WIP
 <p align="center">
-IWEC: 12-, the black-skinned ponies with big "lips" and unfocused eyes, those raids skins/voids, HOUSE OF PUSO FANS (you're disgusting if you find the f3et imgs funny or anything about it, i don't like you. you're making fun of someone's struggles.), ddlc fans (only if you are making fun of their deaths.), tutorials skins w/o CR. 
+IWEC: 12-, the black-skinned ponies with big "lips" and unfocused eyes, those raids skins/voids, HOUSE OF PUSO FANS (you're disgusting if you find the f3et imgs funny or anything about it, i don't like you. you're making fun of someone's struggles.), ddlc fans (only if you are making fun of their deaths.), tutorials skins w/o CR, yaois/yuris enjoyer (bc they're a fetish term, I don't fetish gay/les ppl. also no. im not saying yuri from ddlc or other characters ok.)
 </div>
 </details>
       
