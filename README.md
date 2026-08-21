@@ -9,7 +9,7 @@
 <p align="center">
 ͜͝   ݁ ݂𓐇⑅ ͜ 
 <p align="center">
-𝖠𝗇𝗒𝗐𝗁𝗈, 𝗁𝗂𝗅𝗅𝗈! 𝖨’𝗆 𝖠𝗑𝖾𝗅 (𝗈𝗋 𝖡𝗎𝗇𝗇𝗒), 𝖺𝗇𝖽 𝗆𝗒 𝖻𝗂𝗋𝗍𝗁𝖽𝖺𝗒 𝗂𝗌 𝗈𝗇 𝖩𝗎𝗅𝗒 30𝗍𝗁! 𝖨’𝗆 𝗁𝖺𝗅𝖿 𝖨𝗇𝖽𝗈𝗇𝖾𝗌𝗂𝖺𝗇 𝖺𝗇𝖽 𝗁𝖺𝗅𝖿 𝖤𝗇𝗀𝗅𝗂𝗌𝗁, 𝖺𝗇𝖽 𝖨’𝗆 𝗅𝖾𝖺𝗋𝗇𝗂𝗇𝗀 𝖩𝖺𝗉𝖺𝗇𝖾𝗌𝖾! 𝖨’𝗆 𝖨𝖭𝖥𝖩/𝖯 𝖺𝗇𝖽 𝖺 4𝗐5. 𝖨 𝗀𝗈 𝖻𝗒 𝗍𝗁𝖾𝗒/𝖺𝗇𝗒, 𝖻𝗎𝗍 𝖨 𝗉𝗋𝖾𝖿𝖾𝗋 𝗍𝗁𝖾𝗒/𝗁𝖾 𝗈𝗋 𝖡𝗎𝗇𝗇𝗒/𝖡𝗎𝗇. 𝖨 𝗎𝗌𝗎𝖺𝗅𝗅𝗒 𝗀𝖾𝗍 𝗈𝖿𝖿𝗍𝖺𝖻 𝗂𝖿 𝖨 𝗀𝖾𝗍 𝖻𝗈𝗋𝖾𝖽, 𝗌𝗈 𝖨’𝗆 𝖺𝗅𝗐𝖺𝗒𝗌 𝗐𝟤𝗂! 𝖨 𝗆𝗂𝗀𝗁𝗍 𝗋𝖾𝗌𝗉𝗈𝗇𝖽 𝗅𝖺𝗍𝖾𝗋 𝗍𝗁𝗈𝗎𝗀𝗁, 𝖾𝗏𝖾𝗇 𝗂𝖿 𝖨’𝗆 𝗈𝗇𝗅𝗂𝗇𝖾. 𝖨 𝗅𝗈𝗏𝖾 𝖽𝗋𝖺𝗐𝗂𝗇𝗀, 𝖺𝗇𝖽 𝖨’𝗏𝖾 𝖺𝗅𝗐𝖺𝗒𝗌 𝗐𝖺𝗇𝗍𝖾𝖽 𝗍𝗈 𝗆𝖺𝗄𝖾 𝗆𝗎𝗌𝗂𝖼, 𝗌𝗈 𝖨’𝗆 𝗉𝗋𝖺𝖼𝗍𝗂𝖼𝗂𝗇𝗀! 𝖨’𝗆 𝖺𝗌𝖾𝗑𝗎𝖺𝗅, 𝗌𝗈 𝗉𝗅𝖾𝖺𝗌𝖾 𝖽𝗈𝗇’𝗍 𝖼𝖺𝗅𝗅 𝗆𝖾 𝖺𝗇𝗒 𝗌𝗎𝗀𝗀𝖾𝗌𝗍𝗂𝗏𝖾 𝗉𝖾𝗍 𝗇𝖺𝗆𝖾𝗌. (𝖨 𝖽𝗈 𝗅𝗂𝗄𝖾 𝖻𝖾𝗂𝗇𝗀 𝖼𝖺𝗅𝗅𝖾𝖽 𝖡𝗎𝗇𝗇𝗒, 𝖺𝗇𝖽 𝖨 𝖺𝗉𝗉𝗋𝖾𝖼𝗂𝖺𝗍𝖾 𝗐𝖺𝗋𝗆 𝗉𝖾𝗍 𝗇𝖺𝗆𝖾𝗌!)
+𝖠𝗇𝗒𝗐𝗁𝗈, 𝗁𝗂𝗅𝗅𝗈! 𝖨’𝗆 𝖠𝗑𝖾𝗅 (𝗈𝗋 𝖡𝗎𝗇𝗇𝗒), 𝖺𝗇𝖽 𝗆𝗒 𝖻𝗂𝗋𝗍𝗁𝖽𝖺𝗒 𝗂𝗌 𝗈𝗇 𝖩𝗎𝗅𝗒 30𝗍𝗁! 𝖨’𝗆 𝗁𝖺𝗅𝖿 𝖨𝗇𝖽𝗈𝗇𝖾𝗌𝗂𝖺𝗇 𝖺𝗇𝖽 𝗁𝖺𝗅𝖿 𝖤𝗇𝗀𝗅𝗂𝗌𝗁, 𝖺𝗇𝖽 𝖨’𝗆 𝗅𝖾𝖺𝗋𝗇𝗂𝗇𝗀 𝖩𝖺𝗉𝖺𝗇𝖾𝗌𝖾! 𝖨’𝗆 𝖨𝖭𝖥𝖩/𝖯 𝖺𝗇𝖽 𝖺 4𝗐5. 𝖨 𝗀𝗈 𝖻𝗒 𝗍𝗁𝖾𝗒/𝖺𝗇𝗒, 𝖻𝗎𝗍 𝖨 𝗉𝗋𝖾𝖿𝖾𝗋 𝗍𝗁𝖾𝗒/𝗁𝖾 𝗈𝗋 𝖡𝗎𝗇𝗇𝗒/𝖡𝗎𝗇. 𝖨 𝗎𝗌𝗎𝖺𝗅𝗅𝗒 𝗀𝖾𝗍 𝗈𝖿𝖿𝗍𝖺𝖻 𝗂𝖿 𝖨 𝗀𝖾𝗍 𝖻𝗈𝗋𝖾𝖽, 𝖺𝗅𝗐𝖺𝗒𝗌 𝗐𝟤𝗂! 𝖨 𝗆𝗂𝗀𝗁𝗍 𝗋𝖾𝗌𝗉𝗈𝗇𝖽 𝗅𝖺𝗍𝖾𝗋 𝗍𝗁𝗈𝗎𝗀𝗁, 𝖾𝗏𝖾𝗇 𝗂𝖿 𝖨’𝗆 𝗈𝗇𝗅𝗂𝗇𝖾. 𝖨 𝗅𝗈𝗏𝖾 𝖽𝗋𝖺𝗐𝗂𝗇𝗀, 𝖺𝗇𝖽 𝖨’𝗏𝖾 𝖺𝗅𝗐𝖺𝗒𝗌 𝗐𝖺𝗇𝗍𝖾𝖽 𝗍𝗈 𝗆𝖺𝗄𝖾 𝗆𝗎𝗌𝗂𝖼, 𝗌𝗈 𝖨’𝗆 𝗉𝗋𝖺𝖼𝗍𝗂𝖼𝗂𝗇𝗀! 𝖨’𝗆 𝖺𝗌𝖾𝗑𝗎𝖺𝗅, 𝗌𝗈 𝗉𝗅𝖾𝖺𝗌𝖾 𝖽𝗈𝗇’𝗍 𝖼𝖺𝗅𝗅 𝗆𝖾 𝖺𝗇𝗒 𝗌𝗎𝗀𝗀𝖾𝗌𝗍𝗂𝗏𝖾 𝗉𝖾𝗍 𝗇𝖺𝗆𝖾𝗌. (𝖨 𝖽𝗈 𝗅𝗂𝗄𝖾 𝖻𝖾𝗂𝗇𝗀 𝖼𝖺𝗅𝗅𝖾𝖽 𝖡𝗎𝗇𝗇𝗒, 𝖺𝗇𝖽 𝖨 𝖺𝗉𝗉𝗋𝖾𝖼𝗂𝖺𝗍𝖾 𝗐𝖺𝗋𝗆 𝗉𝖾𝗍 𝗇𝖺𝗆𝖾𝗌!)
 <p align="center">
       ྀི.   ◟‿.                      ֪֪݃  
 <p align="center">
@@ -29,7 +29,7 @@
   <summary><ins>𝖣𝖭𝖨, 𝖤𝗍𝖼</ins></summary>
 
 ⠀<p align="center">
-DNI: 𝖯𝖤𝖣0, 𝖹00𝖯𝖧𝖨𝖫𝖤𝖲, 𝖱𝖠𝖢𝖨𝖲𝖳, 𝖧𝖮𝖬𝖮𝖯𝖧𝖮𝖡𝖨𝖢, 𝖩𝗈𝗄𝖾𝗌 𝖠𝖻𝗈𝗎𝗍 𝖱×𝗉𝖾 (𝖺𝖻𝗎𝗌𝖾𝗌, 𝖾𝗍𝖼 𝗍𝗁𝖺𝗍 𝗂𝗌 𝖻𝖺𝖽), 𝗇𝗈𝗍 𝗋𝖾𝗌𝗉𝖾𝖼𝗍𝗂𝗇𝗀 𝗆𝖾 𝗈𝗋 𝗈𝗍𝗁𝖾𝗋 𝗉𝖾𝗈𝗉𝗅𝖾, 𝖺 𝗏𝖾𝗋𝗒 𝖵𝖤𝖱𝖸 𝖱𝖴𝖣𝖤 𝖯𝖤𝖱𝖲𝖮𝖭, 𝗆𝖺𝗄𝗂𝗇𝗀 𝖿𝖺𝗄𝖾 𝗋𝗎𝗆𝗈𝗋𝗌 𝗍𝗁𝖺𝗍 𝖺𝗋𝖾 𝗂𝗇𝖺𝗉𝗉𝗋𝗈𝗉𝗋𝗂𝖺𝗍𝖾. (𝖭𝗈𝗍𝖾: 𝗂𝖿 𝗒𝗈𝗎 𝖾𝗇𝗃𝗈𝗒 𝗂𝗇𝗏𝖾𝗇𝗍𝗂𝗇𝗀 𝗉𝗅𝖺𝗒𝖿𝗎𝗅, 𝗁𝖺𝗋𝗆𝗅𝖾𝗌𝗌 𝗋𝗎𝗆𝗈𝗋𝗌 𝖺𝖻𝗈𝗎𝗍 𝖿𝗂𝖼𝗍𝗂𝗈𝗇𝖺𝗅 𝖼𝗁𝖺𝗋𝖺𝖼𝗍𝖾𝗋𝗌, 𝗍𝗁𝖺𝗍'𝗌 𝖿𝗂𝗇𝖾. 𝖻𝗎𝗍 𝖻𝖾 𝖼𝖺𝗋𝖾𝖿𝗎𝗅.), . (𝗂𝖿 𝗒𝗈𝗎 𝖲𝗎𝗉𝗉𝗈𝗋𝗍𝗌, 𝗉𝖺𝗋𝗍𝗂𝖼𝗂𝗉𝖺𝗍𝖾𝗌, 𝗍𝗈𝗅𝖾𝗋𝖺𝗍𝖾𝗌, 𝗈𝗋 𝗃𝗎𝗌𝗍𝗂𝖿𝗒 𝖺𝗇𝗒 𝗈𝖿 𝗍𝗁𝖾 𝖺𝖻𝗈𝗏𝖾 𝗇𝗍𝗒 𝗌𝗍𝗂𝗅𝗅 𝖽𝗇𝗂.) 
+DNI: 𝖯𝖤𝖣0, 𝖹00𝖯𝖧𝖨𝖫𝖤𝖲, 𝖱𝖠𝖢𝖨𝖲𝖳, 𝖧𝖮𝖬𝖮𝖯𝖧𝖮𝖡𝖨𝖢, 𝖩𝗈𝗄𝖾𝗌 𝖠𝖻𝗈𝗎𝗍 𝖱×𝗉𝖾 (𝖺𝖻𝗎𝗌𝖾𝗌, 𝖾𝗍𝖼 𝗍𝗁𝖺𝗍 𝗂𝗌 𝖻𝖺𝖽), 𝗇𝗈𝗍 𝗋𝖾𝗌𝗉𝖾𝖼𝗍𝗂𝗇𝗀 𝗆𝖾 𝗈𝗋 𝗈𝗍𝗁𝖾𝗋 𝗉𝖾𝗈𝗉𝗅𝖾, 𝖺 𝗏𝖾𝗋𝗒 𝖵𝖤𝖱𝖸 𝖱𝖴𝖣𝖤 𝖯𝖤𝖱𝖲𝖮𝖭, 𝗆𝖺𝗄𝗂𝗇𝗀 𝖿𝖺𝗄𝖾 𝗋𝗎𝗆𝗈𝗋𝗌 𝗍𝗁𝖺𝗍 𝖺𝗋𝖾 𝗂𝗇𝖺𝗉𝗉𝗋𝗈𝗉𝗋𝗂𝖺𝗍𝖾. (𝖭𝗈𝗍𝖾: 𝗂𝖿 𝗒𝗈𝗎 𝖾𝗇𝗃𝗈𝗒 𝗂𝗇𝗏𝖾𝗇𝗍𝗂𝗇𝗀 𝗉𝗅𝖺𝗒𝖿𝗎𝗅, 𝗁𝖺𝗋𝗆𝗅𝖾𝗌𝗌 𝗋𝗎𝗆𝗈𝗋𝗌 𝖺𝖻𝗈𝗎𝗍 𝖿𝗂𝖼𝗍𝗂𝗈𝗇𝖺𝗅 𝖼𝗁𝖺𝗋𝖺𝖼𝗍𝖾𝗋𝗌, 𝗍𝗁𝖺𝗍'𝗌 𝖿𝗂𝗇𝖾. 𝖻𝗎𝗍 𝖻𝖾 𝖼𝖺𝗋𝖾𝖿𝗎𝗅.), (𝗂𝖿 𝗒𝗈𝗎 𝖲𝗎𝗉𝗉𝗈𝗋𝗍𝗌, 𝗉𝖺𝗋𝗍𝗂𝖼𝗂𝗉𝖺𝗍𝖾𝗌, 𝗍𝗈𝗅𝖾𝗋𝖺𝗍𝖾𝗌, 𝗈𝗋 𝗃𝗎𝗌𝗍𝗂𝖿𝗒 𝖺𝗇𝗒 𝗈𝖿 𝗍𝗁𝖾 𝖺𝖻𝗈𝗏𝖾 𝗇𝗍𝗒 𝗌𝗍𝗂𝗅𝗅 𝖽𝗇𝗂.) 
 <p align="center">
 THIN ICES (close to getting blocked): WIP
 <p align="center">
@@ -44,7 +44,7 @@ IWEC: Black-skinned ponies with big “lips” and unfocused eyes, Raids, voids,
   <p align="center">
 Please don’t ever joke about my mental health. If you do, I will block you. If you’re my friend, I may lose interest in maintaining the friendship and start avoiding you, im uncomfortable. 
 <p align="center">
-If you complain about it or make posts about me ignoring you—such as, “OH MY DAYS JARONA!!1!, this guy keeps ignoring me! Huhu… I’m so sad…”—just to get my attention or someone else’s, don’t expect me to feel bad or guilty. Your reaction is your responsibility, not mine.
+If you complain about it or make posts about me ignoring you—such as, “OH MY DAYS JARONA!!1!, this guy keeps ignoring me! Huhu… I’m so sad..” just to get my attention or someone else’s, don’t expect me to feel bad or guilty. Your reaction is your responsibility, not mine.
 <p align="center">
 If you’ve crossed this boundary, I expect a sincere apology. Please respect my boundaries and PROMISE to never make jokes about my mental health again. (and my friend.. if you ignore this boundary, I may block you and distance myself from the friendship. If you make a mistake, apologize sincerely and respect my request moving forward.)
 <p align="center">
