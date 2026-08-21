@@ -31,9 +31,9 @@
 ⠀<p align="center">
 DNI: 𝖯𝖤𝖣0, 𝖹00𝖯𝖧𝖨𝖫𝖤𝖲, 𝖱𝖠𝖢𝖨𝖲𝖳, 𝖧𝖮𝖬𝖮𝖯𝖧𝖮𝖡𝖨𝖢, 𝖩𝗈𝗄𝖾𝗌 𝖠𝖻𝗈𝗎𝗍 𝖱×𝗉𝖾 (𝖺𝖻𝗎𝗌𝖾𝗌, 𝖾𝗍𝖼 𝗍𝗁𝖺𝗍 𝗂𝗌 𝖻𝖺𝖽), 𝗇𝗈𝗍 𝗋𝖾𝗌𝗉𝖾𝖼𝗍𝗂𝗇𝗀 𝗆𝖾 𝗈𝗋 𝗈𝗍𝗁𝖾𝗋 𝗉𝖾𝗈𝗉𝗅𝖾, 𝖺 𝗏𝖾𝗋𝗒 𝖵𝖤𝖱𝖸 𝖱𝖴𝖣𝖤 𝖯𝖤𝖱𝖲𝖮𝖭, 𝗆𝖺𝗄𝗂𝗇𝗀 𝖿𝖺𝗄𝖾 𝗋𝗎𝗆𝗈𝗋𝗌 𝗍𝗁𝖺𝗍 𝖺𝗋𝖾 𝗂𝗇𝖺𝗉𝗉𝗋𝗈𝗉𝗋𝗂𝖺𝗍𝖾. (𝖭𝗈𝗍𝖾: 𝗂𝖿 𝗒𝗈𝗎 𝖾𝗇𝗃𝗈𝗒 𝗂𝗇𝗏𝖾𝗇𝗍𝗂𝗇𝗀 𝗉𝗅𝖺𝗒𝖿𝗎𝗅, 𝗁𝖺𝗋𝗆𝗅𝖾𝗌𝗌 𝗋𝗎𝗆𝗈𝗋𝗌 𝖺𝖻𝗈𝗎𝗍 𝖿𝗂𝖼𝗍𝗂𝗈𝗇𝖺𝗅 𝖼𝗁𝖺𝗋𝖺𝖼𝗍𝖾𝗋𝗌, 𝗍𝗁𝖺𝗍'𝗌 𝖿𝗂𝗇𝖾. 𝖻𝗎𝗍 𝖻𝖾 𝖼𝖺𝗋𝖾𝖿𝗎𝗅.), (𝗂𝖿 𝗒𝗈𝗎 𝖲𝗎𝗉𝗉𝗈𝗋𝗍𝗌, 𝗉𝖺𝗋𝗍𝗂𝖼𝗂𝗉𝖺𝗍𝖾𝗌, 𝗍𝗈𝗅𝖾𝗋𝖺𝗍𝖾𝗌, 𝗈𝗋 𝗃𝗎𝗌𝗍𝗂𝖿𝗒 𝖺𝗇𝗒 𝗈𝖿 𝗍𝗁𝖾 𝖺𝖻𝗈𝗏𝖾 𝗇𝗍𝗒 𝗌𝗍𝗂𝗅𝗅 𝖽𝗇𝗂.) 
 <p align="center">
-THIN ICES (close to getting blocked): WIP
+THIN ICES (close to getting blocked): House of Puso fans (If you think the f3et images (or anything related) are funny, you’re disgusting. I don’t like you. You’re making fun of someone’s struggles), DDLC fans — Only if you make fun of their deaths (WIP)
 <p align="center">
-IWEC: Black-skinned ponies with big “lips” and unfocused eyes, Raids, voids, that one Cat/kitty skins (cute, but still IWEC pls), House of Puso fans (If you think the f3et images (or anything related) are funny, you’re disgusting. I don’t like you. You’re making fun of someone’s struggles), DDLC fans — Only if you make fun of their deaths., Tutorial skins without CR (credit),yaois/ yuri enjoyers — “Yaoi” and “yuri” are fetish terms, and I don’t fetishize gay/lesbian people. Also, no. I’m not talking about yuri from DDLC or other character ok.
+IWEC: Black-skinned ponies with big “lips” and unfocused eyes, Raids, voids, that one Cat/kitty skins (cute, but still IWEC pls)., Tutorial skins without CR (credit),yaois/ yuri enjoyers — “Yaoi” and “yuri” are fetish terms, (I don’t fetishize gay/lesbian people. Also, no. I’m not talking about yuri from DDLC or other character ok.) (wip)
 </div>
 </details>
       
