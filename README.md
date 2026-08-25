@@ -73,5 +73,3 @@ oh and also, if you see me interacting with that smurf guy or bloo without whisp
 
   <p align="center">
   ᣟ ⠀⠀ 𓈒 💭 ͜͜ 𓐇
-  <p align="center">
-<img src="https://readme-typing-svg.demolab.com?font=Great+Vibes&duration=7000&pause=450&color=ffe7ff&center=true&width=790&lines=%22+Somewhere+between%27t+cotton+candy+skies+pastel+dreams.+Axel+stepped+onto+the+island+and+grew+the+softest+wings.+%22;%22+Meant,+to+stay.+I%27ll+only+as+long+as++their+sweet+little+heart+remained+there+.+%22" />
