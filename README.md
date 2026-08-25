@@ -60,6 +60,18 @@ oh and also, if you see me interacting with that smurf guy or bloo without whisp
 </details>
 
   <p align="center">
+<div align="center">
+<details>
+  <summary><ins>"𝖮𝗎𝗎 𝗆𝖾"</ins></summary>
+<img width="400" height="225" alt="Untitled52_20260820112244" src="https://github.com/user-attachments/assets/33f4a129-8d4e-4299-974b-02a03e09c8aa" />
+<img width="400" height="225" alt="IMG_3420" src="https://github.com/user-attachments/assets/674fb09e-6be6-473a-ba40-1809a004badc" />
+<img width="400" height="225" alt="IMG_3628" src="https://github.com/user-attachments/assets/e1cf4067-1ab6-43ca-b621-19354506276d" />
+<img width="400" height="225" alt="IMG_3812" src="https://github.com/user-attachments/assets/3e6f025a-2412-49c2-9b1c-810c4a84df14" />
+
+</div>
+</details>
+
+  <p align="center">
   ᣟ ⠀⠀ 𓈒 💭 ͜͜ 𓐇
   <p align="center">
 <img src="https://readme-typing-svg.demolab.com?font=Great+Vibes&duration=7000&pause=450&color=ffe7ff&center=true&width=790&lines=%22+Somewhere+between%27t+cotton+candy+skies+pastel+dreams.+Axel+stepped+onto+the+island+and+grew+the+softest+wings.+%22;%22+Meant,+to+stay.+I%27ll+only+as+long+as++their+sweet+little+heart+remained+there+.+%22" />
