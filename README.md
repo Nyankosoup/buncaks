@@ -66,6 +66,15 @@ oh and also, if you see me interacting with that smurf guy or bloo without whisp
   <p align="center">
 <div align="center">
 <details>
+  <summary><ins>Pony Town</ins></summary>
+c+h+k freely!!! dont sneeze on me when im in a bad mood. Covering is ok just for cuddles. but i have CG or a bit of a Cover Trigger (ex: , i just want to observe my pony bro.
+
+  </div>
+</details>
+
+  <p align="center">
+<div align="center">
+<details>
   <summary><ins>"𝖮𝗎𝗎 𝗆𝖾"</ins></summary>
 <img width="400" height="225" alt="Untitled52_20260820112244" src="https://github.com/user-attachments/assets/33f4a129-8d4e-4299-974b-02a03e09c8aa" /> <img width="400" height="225" alt="IMG_3420" src="https://github.com/user-attachments/assets/674fb09e-6be6-473a-ba40-1809a004badc" /> <img width="400" height="225" alt="IMG_3628" src="https://github.com/user-attachments/assets/e1cf4067-1ab6-43ca-b621-19354506276d" /> <img width="400" height="225" alt="IMG_3812" src="https://github.com/user-attachments/assets/3e6f025a-2412-49c2-9b1c-810c4a84df14" />
 <img width="400" height="225" alt="Untitled65_20260826075835" src="https://github.com/user-attachments/assets/78e15a84-f170-4752-8cbb-244c3aad914e" /><img width="720" height="516" alt="IMG_2343" src="https://github.com/user-attachments/assets/79bd839d-dcd5-4b63-9ba5-c69317d9dab7" />
