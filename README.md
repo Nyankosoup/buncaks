@@ -57,7 +57,7 @@ If you complain about it or make posts about me ignoring you—such as, “OH MY
 <p align="center">
 If you’ve crossed this boundary, I expect a sincere apology. Please respect my boundaries and PROMISE to never make jokes about my mental health again. (and my friend.. if you ignore this boundary, I may block you and distance myself from the friendship. If you make a mistake, apologize sincerely and respect my request moving forward.)
 <p align="center">
-i have a half-diagnose AUDHD, depression and anxiety. im pretty awkward.
+i have a half-diagnose AUDHD, depression and anxiety. im pretty awkward. my social batteries ran out quickly if you don't do anything or just stare at me. 😟 /pos
 <p align="center">
 oh and also, if you see me interacting with that smurf guy or bloo without whispering each other, its all satire for the playful act. so don't mind us, just try not to annoy both of us.
 
