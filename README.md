@@ -90,6 +90,8 @@ Covering is okay, but only for cuddles. I have CG (or a bit of a Cover Trigger).
 <img width="400" height="225" alt="IMG_2995" src="https://github.com/user-attachments/assets/2a5602b9-36a9-4d20-aa37-8155daeb7077" />
 <img width="400" height="225" alt="IMG_3227" src="https://github.com/user-attachments/assets/40eabea7-0bc3-481a-bbd8-2673b26870f1" />
 <img width="400" height="225" alt="IMG_3423" src="https://github.com/user-attachments/assets/98064279-2007-49d6-bbe2-5f0bfeb1812b" />
+<img width="400" height="225" alt="IMG_4030" src="https://github.com/user-attachments/assets/81345263-9679-46c0-b640-5bdfa95c8758" />
+
 
 
 
