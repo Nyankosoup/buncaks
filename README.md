@@ -67,7 +67,11 @@ oh and also, if you see me interacting with that smurf guy or bloo without whisp
 <div align="center">
 <details>
   <summary><ins>Pony Town</ins></summary>
-c+h+k freely!!! dont sneeze on me when im in a bad mood. Covering is ok just for cuddles. but i have CG or a bit of a Cover Trigger (ex: , i just want to observe my pony bro.
+c+h+k freely!!! Just don’t sneeze on me when I’m in a bad mood.
+Covering is okay, but only for cuddles. I have CG (or a bit of a Cover Trigger). For example: text walls, just covering me, etc)  I’m always offtab (busy all the time, or just sleeping like a fish). Like I said, always w2i. I might respond late, I guess This is probably how you’ll see me sleeping.. heh.
+ <p align="center"
+ <img width="200" height="115" alt="IMG_4022" src="https://github.com/user-attachments/assets/0c12bc23-38a3-47e8-be49-25314e9e7481" />>
+
 
   </div>
 </details>
