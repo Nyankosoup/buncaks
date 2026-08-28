@@ -52,7 +52,7 @@ BYI/FRIEND: 𝖨 𝗁𝖺𝗏𝖾 𝖺 𝗁𝖺𝗅𝖿-𝖽𝗂𝖺𝗀𝗇𝗈
   <summary><ins>cautions</ins></summary>
 
   <p align="center">
-Please don’t ever joke about my mental health. If you do, I will block you. If you’re my friend, I may lose interest in maintaining the friendship and start avoiding you, im uncomfortable. 
+Please don’t ever joke about my mental health/problem. If you do, I will block you. If you’re my friend, I may lose interest in maintaining the friendship and start avoiding you, im uncomfortable. 
 <p align="center">
 If you complain about it or make posts about me ignoring you—such as, “OH MY DAYS JARONA!!1!, this guy keeps ignoring me! Huhu… I’m so sad..” just to get my attention or someone else’s, don’t expect me to feel bad or guilty. Your reaction is your responsibility, not mine.
 <p align="center">
