@@ -60,9 +60,6 @@ If you’ve crossed this boundary, I expect a sincere apology. Please respect my
 <p align="center">
 oh and also, if you see me interacting with that smurf guy or bloo without whispering each other, its all satire for the playful act. so don't mind us, just try not to annoy both of us.
 <p align="center">
-and dont ever compare me with others. i do not like that. you're just acting like what my parents did. flip off.
-<p align="center">
-
 
   </div>
 </details>
