@@ -72,7 +72,7 @@ oh and also, if you see me interacting with that smurf guy or bloo without whisp
 <details>
   <summary><ins>Pony Town</ins></summary>
 c+h+k freely!!! Just don’t sneeze on me when I’m in a bad mood.
-Covering is okay, but only for cuddles. I have CG (or a bit of a Cover Trigger). For example: text walls, covering me on purpose/"accidentally", etc)  I’m always offtab (busy all the time, or just sleeping. im eepy all the time lol). Like I said, always w2i. I might respond late.. very late. 😇🫶 ASK 4 INSPO. DO NOT COPY STRICTLY. ASK 4 A DMN INSPO DUDE I SEEN A SOME OF PEOPLE TOOK HEAVY INSPO.
+Covering is okay, but only for cuddles. I have CG (or a bit of a Cover Trigger). For example: text walls, covering me on purpose/"accidentally", etc)  I’m always offtab (busy all the time, or just sleeping. im eepy all the time lol). Like I said, always w2i. I might respond late.. very late. 😇🫶 ASK 4 INSPO. DO NOT COPY STRICTLY. ASK 4 A DMN INSPO DUDE I SEEN A SOME OF PEOPLE TOOK HEAVY INSPO FROM ME ESPECIALLY FOR MY GROX PONY. IM VERY UNCOMFORTABLE WITH THIS. PLEASE JUST ASK. 😢😢😢 PLEASE. IM. NOT. COMFORTABLE ENOUGH.
 
   </div>
 </details>
