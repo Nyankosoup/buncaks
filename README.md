@@ -45,7 +45,7 @@ IWEC: 12-, 𝖡𝗅𝖺𝖼𝗄-𝗌𝗄𝗂𝗇𝗇𝖾𝖽 𝗉𝗈𝗇𝗂�
 <p align="center">
 BYI/FRIEND: 𝖨 𝗁𝖺𝗏𝖾 𝖺 𝗁𝖺𝗅𝖿-𝖽𝗂𝖺𝗀𝗇𝗈𝗌𝖾𝖽 𝖠𝗎𝖣𝖧𝖣, 𝗉𝗅𝗎𝗌 𝖽𝖾𝗉𝗋𝖾𝗌𝗌𝗂𝗈𝗇 𝖺𝗇𝖽 𝖺𝗇𝗑𝗂𝖾𝗍𝗒. 𝖨’𝗆 𝗉𝗋𝖾𝗍𝗍𝗒 𝖺𝗐𝗄𝗐𝖺𝗋𝖽, 𝖺𝗇𝖽 𝗆𝗒 𝗌𝗈𝖼𝗂𝖺𝗅 𝖻𝖺𝗍𝗍𝖾𝗋𝗒 𝖽𝗋𝖺𝗂𝗇𝗌 𝗊𝗎𝗂𝖼𝗄𝗅𝗒 𝗂𝖿 𝗒𝗈𝗎 𝖽𝗈𝗇’𝗍 𝖽𝗈 𝖺𝗇𝗒𝗍𝗁𝗂𝗇𝗀 𝗈𝗋 𝗃𝗎𝗌𝗍 𝗌𝗍𝖺𝗋𝖾 𝖺𝗍 𝗆𝖾. 😟 /𝗉𝗈𝗌 𝖨 𝖺𝗅𝗌𝗈 𝖼𝗋𝗒 𝖾𝖺𝗌𝗂𝗅𝗒, 𝗇𝗈 𝗆𝖺𝗍𝗍𝖾𝗋 𝗐𝗁𝖺𝗍 𝗇𝖾𝗀𝖺𝗍𝗂𝗏𝖾 𝗍𝗁𝗂𝗇𝗀 𝗒𝗈𝗎 𝖽𝗈 𝗍𝗈 𝗆𝖾. 𝖨 𝖽𝗈𝗇’𝗍 𝗅𝗂𝗄𝖾 𝖼𝗋𝗒𝗂𝗇𝗀, 𝖺𝗇𝖽 𝗂𝗍’𝗌 𝗈𝗇𝖾 𝗈𝖿 𝗆𝗒 𝖻𝗂𝗀𝗀𝖾𝗌𝗍 𝗂𝗇𝗌𝖾𝖼𝗎𝗋𝗂𝗍𝗂𝖾𝗌—𝖻𝖾𝗂𝗇𝗀 𝗌𝗈 𝗌𝖾𝗇𝗌𝗂𝗍𝗂𝗏𝖾, 𝗅𝗂𝗄𝖾 𝖺 𝗍𝗈𝖽𝖽𝗅𝖾𝗋. 𝗂 𝗎𝗌𝗎𝖺𝗅𝗅𝗒 𝗋𝖾𝗀𝗋𝖾𝗍/𝖾𝗆𝖻𝖺𝗋𝗋𝖺𝗌𝗌𝖾𝖽 𝗈𝖿 𝗆𝗒𝗌𝖾𝗅𝖿 𝖤𝖲𝖯𝖤𝖢𝖨𝖠𝖫𝖫𝖸, 𝖢𝖧𝖠𝖳𝖳𝖨𝖭𝖦 𝖳𝖮 𝖯𝖤𝖮𝖯𝖫𝖤 😥𝖨𝖬 𝖠𝖭𝖷𝖨𝖮𝖴𝖲. 𝗌𝗐𝖾𝖺𝗍𝗌
 <p align="center">
-other stuff: (𝗐𝗂𝗉)  WELL. may unfollow you on accident......., WHICH MAKE ME EMBARRASSED SO PLS IGNORE THAT H /pos. 😭 (its my second time now ;nisjsnsjeinsuhensiwnisnjwsnijensh u. 😡😡😡😡👎👎)
+other stuff: (𝗐𝗂𝗉)  WELL. may unfollow you on accident......., WHICH MAKE ME EMBARRASSED SO PLS IGNORE THAT H /pos. 😭 (its the FIFTH time now ;nisjsnsjeinsuhensiwnisnjwsnijensh u. h ba dudubok. 😡😡😡😡👎👎 yes also in different sosmed (such as tiktok, insta, and.))
 
 </div>
 </details>
