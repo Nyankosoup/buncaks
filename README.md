@@ -85,7 +85,7 @@ c+h+k freely!!! Just don’t sneeze on me strangers.. (unless we int be4 or just
 <details>
   <summary><ins>Interest yay!!</ins></summary>
 <p align="center">
-Fandoms (WIP): Spooky Month (MAINLY), MLP, TF2, Malevolent Podcast, Zenless Zone Zero, Marvel Rivals, Nekopara, Sanrios, Deltarune/Undertlale, Mario Bros, LuckyStar, K-on, ALNST, CRK, Roblox myths, ETM (Epic The Musical), MH (monster high) and Ever After High, Ultrakill, RDR2, A Silent Hill, Rick and Morty, Unstable smp/Dream uusmp, Minecraft Args, MouthWashing, 80+ HARAGAAHAHAHAHAHAH
+hey. GO BACK TO THE. GO UP THERE IM STILL WORKING ON THIS HEY. HEY PSSTTTT PST ok. ok? yes kk. good man arthur /ref
 
 https://github.com/user-attachments/assets/b501c342-2cf9-4402-8d12-d04937cf036c
 
