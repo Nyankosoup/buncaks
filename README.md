@@ -64,12 +64,9 @@ If you’ve crossed this boundary, I expect a sincere apology. Please respect my
 <p alight="center"> 
 same for this, if we’re friends or close friends and I’m not replying to you, it doesn’t mean I’m completely ignoring you. I might just be very busy, not paying attention, or I don’t know what to say. Sometimes I’m being extremely careful with my words and actions around you because I’m scared I might offend or upset you, especially if you have an IWEC (Interact With Extreme Caution). Please keep that in mind. 
 <p alight="center">
-others:
+im very awkward when you vents . so yeah. but ill try my best to comfort you ig. (i hates conflict, if you/someone is venting about a problem that i can somehow "fix" (even if it isn't my fault), i will immediately over-apologize, same to a AGGRESSIVE vents with i immediate instinct is avoidance and physical retreat. However!! if the venting is too heavy, i would've gotten takes over. Instead of offering practical solutions or standard comfort, i might just say "oh im sorry for that.", or just simple poo. (doesn't mean i don't care or don't feel bad to you) js lik "stand awkwardly in the corner" cuz!p im terrified of saying the wrong thing and making the person who vent feel worse)
 <p alight="center">
-bad grammar (English is not my native words)/spelling (or js keyboard smash) that may confuse you (HAHAH my friend experience this a lot)
-<p alight="center">
-im very awkward when you sent me a long paragraph/vents but ill try my best to reply (i hates conflict, if you/someone is venting about a problem that i can somehow "fix" (even if it isn't my fault), i will immediately over-apologize, same to a vents with a lot of yelling, pacing, or aggressive gestures, i immediate instinct is avoidance and physical retreat. However, if the venting is too heavy, my anxiety would've gotten takes over. Instead of offering practical solutions or standard comfort, i might just say "oh my." (doesn't mean i don't care or don't feel bad to you) or freeze up because im terrified of saying the wrong thing and making the person who vent feel worse), im very shy/timid towards people so don't expect me to message you immediately.
-
+(For friends: please PLEASE ask for my permission before bringing up sensitive topics with me. I may get pretty uncomfortable, overwhelmed if you start venting without asking first ALSO please don’t be mad if I say no. I might feel very uncomfortable, especially when the topic is selfharm. (IMPORTANT!!: I dont talk about or encourage self-harm. If you’re struggling with those feelings. please reach out to someone you trust who can support you.) 
 
   </div>
 </details>
