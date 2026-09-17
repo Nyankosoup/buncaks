@@ -89,7 +89,7 @@ Covering is okay, but only for cuddles. I have CG (or a bit of a Cover Trigger).
 <details>
   <summary><ins>Interest yay!!</ins></summary>
 <p align="center">
-Fandoms (WIP): Spooky Month, , 
+Fandoms (WIP): Spooky Month (MAINLY), MLP, TF2, Malevolent Podcast, Zenless Zone Zero, Marvel Rivals, Nekopara, Sanrios, Deltarune/Undertlale, Mario Bros, LuckyStar, K-on, ALNST, CRK, Roblox myths, ETM (Epic The Musical), MH (monster high) and Ever After High, Ultrakill, RDR2, A Silent Hill, Rick and Morty, Unstable smp/Dream uusmp, Minecraft Args, MouthWashing, 80+ HARAGAAHAHAHAHAHAH
 
 https://github.com/user-attachments/assets/b501c342-2cf9-4402-8d12-d04937cf036c
 
