@@ -44,7 +44,7 @@ IWEC: 12-, 𝖡𝗅𝖺𝖼𝗄-𝗌𝗄𝗂𝗇𝗇𝖾𝖽 𝗉𝗈𝗇𝗂�
 <p align="center">
 BYI/FRIEND: 𝖨 𝗁𝖺𝗏𝖾 𝖺 𝗁𝖺𝗅𝖿-𝖽𝗂𝖺𝗀𝗇𝗈𝗌𝖾𝖽 𝖠𝗎𝖣𝖧𝖣, 𝗉𝗅𝗎𝗌 𝖽𝖾𝗉𝗋𝖾𝗌𝗌𝗂𝗈𝗇 𝖺𝗇𝖽 𝖺𝗇𝗑𝗂𝖾𝗍𝗒. 𝖨’𝗆 𝗉𝗋𝖾𝗍𝗍𝗒 𝖺𝗐𝗄𝗐𝖺𝗋𝖽, 𝖺𝗇𝖽 𝗆𝗒 𝗌𝗈𝖼𝗂𝖺𝗅 𝖻𝖺𝗍𝗍𝖾𝗋𝗒 𝖽𝗋𝖺𝗂𝗇𝗌 𝗊𝗎𝗂𝖼𝗄𝗅𝗒 𝗂𝖿 𝗒𝗈𝗎 𝖽𝗈𝗇’𝗍 𝖽𝗈 𝖺𝗇𝗒𝗍𝗁𝗂𝗇𝗀 𝗈𝗋 𝗃𝗎𝗌𝗍 𝗌𝗍𝖺𝗋𝖾 𝖺𝗍 𝗆𝖾. 😟 /𝗉𝗈𝗌 𝖨 𝖺𝗅𝗌𝗈 𝖼𝗋𝗒 𝖾𝖺𝗌𝗂𝗅𝗒, 𝗇𝗈 𝗆𝖺𝗍𝗍𝖾𝗋 𝗐𝗁𝖺𝗍 𝗇𝖾𝗀𝖺𝗍𝗂𝗏𝖾 𝗍𝗁𝗂𝗇𝗀 𝗒𝗈𝗎 𝖽𝗈 𝗍𝗈 𝗆𝖾. 𝖨 𝖽𝗈𝗇’𝗍 𝗅𝗂𝗄𝖾 𝖼𝗋𝗒𝗂𝗇𝗀, 𝖺𝗇𝖽 𝗂𝗍’𝗌 𝗈𝗇𝖾 𝗈𝖿 𝗆𝗒 𝖻𝗂𝗀𝗀𝖾𝗌𝗍 𝗂𝗇𝗌𝖾𝖼𝗎𝗋𝗂𝗍𝗂𝖾𝗌—𝖻𝖾𝗂𝗇𝗀 𝗌𝗈 𝗌𝖾𝗇𝗌𝗂𝗍𝗂𝗏𝖾, 𝗅𝗂𝗄𝖾 𝖺 𝗍𝗈𝖽𝖽𝗅𝖾𝗋. 𝗂 𝗎𝗌𝗎𝖺𝗅𝗅𝗒 𝗋𝖾𝗀𝗋𝖾𝗍/𝖾𝗆𝖻𝖺𝗋𝗋𝖺𝗌𝗌𝖾𝖽 𝗈𝖿 𝗆𝗒𝗌𝖾𝗅𝖿 𝖤𝖲𝖯𝖤𝖢𝖨𝖠𝖫𝖫𝖸, 𝖢𝖧𝖠𝖳𝖳𝖨𝖭𝖦 𝖳𝖮 𝖯𝖤𝖮𝖯𝖫𝖤 😥𝖨𝖬 𝖠𝖭𝖷𝖨𝖮𝖴𝖲. 𝗌𝗐𝖾𝖺𝗍𝗌
 <p align="center">
-other stuff: (𝗐𝗂𝗉) Just because I show love to you doesn’t mean I want to be your gf/bf or that I have a crush on you. No. Don’t even think like that nono no nah. And if I act “freaky” or extra around you, that doesn’t mean that either. Even if I’m super clingy still a no. Also.. don’t flirt with me unless we’re close friends, I’m actually in the mood, or you’re not being creepy. Don’t push it too far… I might block you.
+other stuff: (𝗐𝗂𝗉) Just because I show love to you doesn’t mean I want to be your gf/bf or that I have a crush on you. No. Don’t even think like that nono no nah. And if I act “freaky” or extra around you, that doesn’t mean that either. Even if I’m super clingy still a no. Also.. don’t flirt with me unless we’re close friends, I’m actually in the mood, or you’re not being creepy. Don’t push it too far… I might block you.......
 
 
 
@@ -58,9 +58,9 @@ other stuff: (𝗐𝗂𝗉) Just because I show love to you doesn’t mean I wan
   <p align="center">
 Please don’t ever joke about my mental health/problem, and about myself being extremely sensitive. If you do: I will block you. If you’re my friend, I may lose interest in maintaining the friendship and start avoiding you, im uncomfortable. 
 <p align="center">
-If you complain about it or make posts about me ignoring you—such as, “OH MY DAYS JARONA!!1! this guy keeps ignoring me! Huhu… I’m so sad..! im so hurttttt!!” (basically acting like the victim just to get my attention or someone else (to make them feel bad to you or harras me to make me horrible), FOLK. don’t expect me to feel bad or guilty. Your reaction is your responsibility, not mine.
+If you complain about it or make posts about me ignoring you—such as, “OH MY DAYS JARONA!!1! this guy keeps ignoring me! Huhu… I’m so sad..! im so hurttttt!!” (basically acting like the victim just to get my attention or someone else (to make them feel bad to you or harras me to make me horrible) DUDETTE. don’t expect me to feel bad or guilty. Your reaction is your responsibility, not mine.
 <p align="center">
-If you’ve crossed this boundary, I expect a sincere apology. Please respect my boundaries and PROMISE to never make  jokes about my mental health again. (and my dearest frend... if you ignore this boundary or keep doing this kind of thing even from other/same accounts (and I’m very aware that some people are experiencing this), I may block you and distance myself from the friendship. If you make a mistake, apologize sincerely and respect my request moving forward.)
+If you’ve crossed this boundary, I expect a sincere apology. Please respect my boundaries and PROMISE to never make  jokes about my mental health again. (and my dearest friendo... if you ignore this boundary or keep doing this kind of thing even from other/same accounts (and I’m very aware that some people are experiencing this), I may block you and distance myself from the friendship. If you make a mistake, apologize sincerely and respect my request moving forward.)
 <p alight="center"> 
 same for this, if we’re friends or close friends and I’m not replying to you, it doesn’t mean I’m completely ignoring you. I might just be very busy, not paying attention, or I don’t know what to say. Sometimes I’m being extremely careful with my words and actions around you because I’m scared I might offend or upset you, especially if you have an IWEC (Interact With Extreme Caution). Please keep that in mind. 
 <p alight="center">
