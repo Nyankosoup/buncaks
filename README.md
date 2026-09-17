@@ -58,15 +58,15 @@ other stuff: (𝗐𝗂𝗉) Just because I show love to you doesn’t mean I wan
   <p align="center">
 Please don’t ever joke about my mental health/problem, and about myself being extremely sensitive. If you do: I will block you. If you’re my friend, I may lose interest in maintaining the friendship and start avoiding you, im uncomfortable. 
 <p align="center">
-If you complain about it or make posts about me ignoring you—such as, “OH MY DAYS JARONA!!1! this guy keeps ignoring me! Huhu… I’m so sad..! im so hurttttt!!” (basically acting like the victim just to get my attention or someone else (to make them feel bad to you or harras me to make me horrible), don’t expect me to feel bad or guilty. Your reaction is your responsibility, not mine.
+If you complain about it or make posts about me ignoring you—such as, “OH MY DAYS JARONA!!1! this guy keeps ignoring me! Huhu… I’m so sad..! im so hurttttt!!” (basically acting like the victim just to get my attention or someone else (to make them feel bad to you or harras me to make me horrible), FOLK. don’t expect me to feel bad or guilty. Your reaction is your responsibility, not mine.
 <p align="center">
-If you’ve crossed this boundary, I expect a sincere apology. Please respect my boundaries and PROMISE to never make  jokes about my mental health again. (and my dearest friend.. if you ignore this boundary or keep doing this kind of thing even from other/same accounts (and I’m very aware that some people are experiencing this), I may block you and distance myself from the friendship. If you make a mistake, apologize sincerely and respect my request moving forward.)
+If you’ve crossed this boundary, I expect a sincere apology. Please respect my boundaries and PROMISE to never make  jokes about my mental health again. (and my dearest frend... if you ignore this boundary or keep doing this kind of thing even from other/same accounts (and I’m very aware that some people are experiencing this), I may block you and distance myself from the friendship. If you make a mistake, apologize sincerely and respect my request moving forward.)
 <p alight="center"> 
 same for this, if we’re friends or close friends and I’m not replying to you, it doesn’t mean I’m completely ignoring you. I might just be very busy, not paying attention, or I don’t know what to say. Sometimes I’m being extremely careful with my words and actions around you because I’m scared I might offend or upset you, especially if you have an IWEC (Interact With Extreme Caution). Please keep that in mind. 
 <p alight="center">
 im very awkward when you vents . so yeah. but ill try my best to comfort you ig. (i hates conflict, if you/someone is venting about a problem that i can somehow "fix" (even if it isn't my fault), i will immediately over-apologize, same to a AGGRESSIVE vents with i immediate instinct is avoidance and physical retreat. However!! if the venting is too heavy, i would've gotten takes over. Instead of offering practical solutions or standard comfort, i might just say "oh im sorry for that.", or just simple poo. (doesn't mean i don't care or don't feel bad to you) js lik "stand awkwardly in the corner" cuz!p im terrified of saying the wrong thing and making the person who vent feel worse)
 <p alight="center">
-(For friends: please PLEASE ask for my permission before bringing up sensitive topics with me. I may get pretty uncomfortable, overwhelmed if you start venting without asking first ALSO please don’t be mad if I say no. I might feel very uncomfortable, especially when the topic is selfharm. (IMPORTANT!!: I dont talk about or encourage self-harm. If you’re struggling with those feelings. please reach out to someone you trust who can support you.) 
+(For friends, especially THOSE friend (im not hating your buht ok pls be more cautious toward me more/pos): please PLEASE ask for my permission before bringing up sensitive topics with me. I may get pretty uncomfortable, overwhelmed if you start venting without asking first ALSO please don’t be mad if I say no. I might feel very uncomfortable, especially when the topic is selfharm. but i will not blovk ypu (IMPORTANT!!: I dont talk about or encourage self-harm. If you’re struggling with those feelings. please reach out to someone you trust who can support you.) 
 
   </div>
 </details>
@@ -75,8 +75,7 @@ im very awkward when you vents . so yeah. but ill try my best to comfort you ig.
 <div align="center">
 <details>
   <summary><ins>Pony Town</ins></summary>
-c+h+k freely!!! Just don’t sneeze on me when I’m in a bad mood.
-Covering is okay, but only for cuddles. I have CG (or a bit of a Cover Trigger). For example: text walls, covering me on purpose/"accidentally", etc)  I’m always offtab (busy all the time, or just sleeping. im eepy all the time lol). Like I said, always w2i. I might respond late.. very late. 😇🫶 ASK 4 INSPO. DO NOT COPY STRICTLY. ASK 4 A DMN INSPO DUDE I SEEN A SOME OF PEOPLE TOOK HEAVY INSPO FROM ME ESPECIALLY FOR MY GROX PONY. IM VERY UNCOMFORTABLE WITH THIS. PLEASE JUST ASK. 😢😢😢 PLEASE. IM. NOT. COMFORTABLE ENOUGH.
+c+h+k freely!!! Just don’t sneeze on me strangers.. (unless we int be4 or just on accident its fine). dont cover my le ponies on purpose, i just wanted to observe me poni bebeh. smiles. I’m always offtab (busy all the time, or just sleeping. im SLEEPY all the time lol). Like I said, always yes always w2i. I might respond late. uguhuhgagaguglu. dont start a drama/argument on me.
 
   </div>
 </details>
