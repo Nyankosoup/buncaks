@@ -69,6 +69,8 @@ ____
 im very awkward when you vents. so yeah. but ill try my best to comfort you ig. (i HATTTEEEEE conflict. I HATEEE CONFLICT. you heard me. if you/someone is venting about a problem that i can somehow "fix" (even if it isn't my fault), i will immediately over-apologize, same to a AGGRESSIVE vents with i immediate instinct is avoidance and physical retreat. However!! if the venting is too heavy, i would've gotten takes over. Instead of offering practical solutions or standard comfort, i might just say "oh im sorry for that.", or just simple poo. (doesn't mean i don't care or don't feel bad to you) js lik "stand awkwardly in the corner" cuz!p im terrified of saying the wrong thing and making the person who vent feel worse)
 <p alight="center">
 (For friends, especially THOSE friend (im not hating your buht ok pls be more cautious toward me more/pos): please PLEASE ask for my permission before bringing up sensitive topics with me. I may get pretty uncomfortable, overwhelmed if you start venting without asking first ALSO please don’t be mad if I say no. I might feel very uncomfortable, especially when the topic is selfharm. but i will not blovk ypu (IMPORTANT!!: I dont talk about or encourage self-harm. If you’re struggling with those feelings. please reach out to someone you trust who can support you.) 
+<p alight="center">
+same for uncomfortable topics.. pls ask.. or just don't bring it up.. gulps. /pos
 
   </div>
 </details>
@@ -77,7 +79,7 @@ im very awkward when you vents. so yeah. but ill try my best to comfort you ig. 
 <div align="center">
 <details>
   <summary><ins>Pony Town</ins></summary>
-c+h+k freely!!! Just don’t sneeze on me strangers.. (unless we int be4 or just on accident its fine). dont cover my le ponies on purpose, i just wanted to observe me poni bebeh. smiles. I’m always offtab (busy all the time, or just sleeping. im SLEEPY all the time lol). Like I said, always yes always w2i. I might respond late. uguhuhgagaguglu. dont start a drama/argument on me. hi. also. i can get really anxious. if you say "nvm byee" to me. i dont know if i make a mistake or som just be careful with me im very sensitive (unless its used for asking). i dont take trolls unseriously, sorry im sensitive af.
+c+h+k freely!!! Just don’t sneeze on me strangers.. (unless we int be4 or just on accident its fine). dont cover my le ponies on purpose, i just wanted to observe me poni bebeh. smiles. I’m always offtab (busy all the time, or just sleeping. im SLEEPY all the time lol). Like I said, always yes always w2i. I might respond late. uguhuhgagaguglu. dont start a drama/argument on me. hi. also. i can get really anxious. if you say "nvm byee" to me. i dont know if i make a mistake or som just be careful with me im very sensitive (unless its used for asking). i take trolls seriously but not that serious, sorry im sensitive af.
 <p align="center">
 <img width="305" height="200" alt="IMG_6171" src="https://github.com/user-attachments/assets/01ec8dfe-10e4-44eb-b3a4-f742a01856a4" />
 
