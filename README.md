@@ -82,6 +82,9 @@ same for uncomfortable o sensitiv topics.. pls ask.. or just don't bring it up..
 c+h+k freely!!! Just don’t sneeze on me strangers.. (unless we int be4 or just on accident its fine... idc,,, honestly). dont cover my le ponies on purpose, i just wanted to observe me poni bebeh. smiles. cover is ok from frind idc also yyuhh you can cover me tho if im offtb heh but i will SLIDE away eventually when i yes. uhh. I’m always offtab (busy all the time lek doing something especially for writijg fanfics r js doing hw ok, or just sleeping. im SLEEPY all the time lol). Like I said, always yes always w2i. I might respond late. uguhuhgagaguglu. BADDD WIFIIII (somtikes.). also if i move by accident its probably causes by my bnuyy (SHUTUPP i love him ) or js me being half-aslep. . .. . (or its because of my dad. worse. ☹️) i finf peopl cute when they cud me. 🥹NOA CAUSE that is so c❤️❤️ut❤️❤️❤️❤️ee aww make me wanna squi
 <p align="center">
 <img width="305" height="200" alt="IMG_6171" src="https://github.com/user-attachments/assets/01ec8dfe-10e4-44eb-b3a4-f742a01856a4" />
+<p align="center">
+hi guys 
+https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc?tab=t.0
 
 
   </div>
