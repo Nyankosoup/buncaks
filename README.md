@@ -109,7 +109,7 @@ https://github.com/user-attachments/assets/b501c342-2cf9-4402-8d12-d04937cf036c
   <p align="center">
   ᣟ ⠀⠀ 𓈒 💭 ͜͜ 𓐇
 
-    <p align="center">
+<p align="center">
 <div align="center">
 <details>
   <summary><ins>cute rhingawwww</ins></summary>
