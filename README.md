@@ -114,7 +114,7 @@ https://github.com/user-attachments/assets/b501c342-2cf9-4402-8d12-d04937cf036c
 <details>
   <summary><ins>cute rhingawwww</ins></summary>
   <p align="center">
-THIS TJNG LOOK AT MY FRIEND DID AWWWWWWWA A W A AEAEAEAWA A AWAWAWAWAAAWAWAWA IM. IM. im eatung them.
+THIS TJNG LOOK AT MY FRIEND DID AWWWWWWWA A W A AEAEAEAWA A AWAWAWAWAAAWAWAWA IM. IM. im eatung them.BEOOO WHAT IS THSISISISISIS ITS SOC UERERREERRRE SO CUTTEEEEEE AWWWWWWW LOOK. thankyousomuch jez... i laBAHI AAW SENT ME THIS THING HELL. AWWWW cutenes aggresio
 <p align="center">
 <img width="1426" height="1196" alt="IMG_7425" src="https://github.com/user-attachments/assets/56d90a74-d6cf-41c1-8862-d0f589be1421" />
 </div>
