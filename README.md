@@ -64,6 +64,9 @@ If you’ve crossed this boundary, I expect a sincere apology. Please respect my
 <p alight="center"> 
 same for this, if we’re friends or close friends and I’m not replying to you, it doesn’t mean I’m completely ignoring you. I might just be very busy, not paying attention, or I don’t know what to say. Sometimes I’m being extremely careful with my words and actions around you because I’m scared I might offend or upset you, especially if you have an IWEC (Interact With Extreme Caution). Please keep that in mind. 
 <p alight="center">
+whatever, this is probably how you see me mad byw /hj
+<p alight="center">
+https://github.com/user-attachments/assets/796516e2-ab12-46cd-acba-f2418946c175
 ____
 <p alight="center">
 im very awkward when you vents. even if it just light ventung so yeah. but ill try my best to comfort you (i HATTTEEEEE conflict. if you/someone is venting about a problem that i can somehow "fix" (even if it isn't my fault), i will immediately over-apologize, same to a AGGRESSIVE vents with i immediate instinct is avoidance and physical retreat. However!! if the venting is too heavy, i would've gotten takes over. Instead of offering practical solutions or standard comfort, i might just say "oh im sorry for that.", or just simple poo. (doesn't mean i don't care or don't feel bad to you) js lik "stand awkwardly in the corner" cuz!p im terrified of saying the wrong thing and making the person who vent feel worse)
