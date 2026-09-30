@@ -64,7 +64,7 @@ If you’ve crossed this boundary, I expect a sincere apology. Please respect my
 <p alight="center"> 
 same for this, if we’re friends or close friends and I’m not replying to you, it doesn’t mean I’m completely ignoring you. I might just be very busy, not paying attention, or I don’t know what to say. Sometimes I’m being extremely careful with my words and actions around you because I’m scared I might offend or upset you, especially if you have an IWEC (Interact With Extreme Caution). Please keep that in mind. 
 <p alight="center">
-whatever, this is probably how you see me mad byw /hj (tw: lower your damn volume cuh)
+whatever, this is probably how you see me mad byw /hj (i hate you that oje friend)
 <p alight="center">
 
 
