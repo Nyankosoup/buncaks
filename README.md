@@ -44,7 +44,7 @@ IWECuf: 12-, 𝖡𝗅𝖺𝖼𝗄-𝗌𝗄𝗂𝗇𝗇𝖾𝖽 𝗉𝗈𝗇𝗂�
 <p align="center">
 BYI/FRIEND: 𝖨 𝗁𝖺𝗏𝖾 𝖺 𝗁𝖺𝗅𝖿-𝖽𝗂𝖺𝗀𝗇𝗈𝗌𝖾𝖽 𝖠𝗎𝖣𝖧𝖣, 𝗉𝗅𝗎𝗌 𝖽𝖾𝗉𝗋𝖾𝗌𝗌𝗂𝗈𝗇 𝖺𝗇𝖽 𝖺𝗇𝗑𝗂𝖾𝗍𝗒. 𝖨’𝗆 𝗉𝗋𝖾𝗍𝗍𝗒 𝖺𝗐𝗄𝗐𝖺𝗋𝖽, 𝖺𝗇𝖽 𝗆𝗒 𝗌𝗈𝖼𝗂𝖺𝗅 𝖻𝖺𝗍𝗍𝖾𝗋𝗒 𝖽𝗋𝖺𝗂𝗇𝗌 𝗊𝗎𝗂𝖼𝗄𝗅𝗒 𝗂𝖿 𝗒𝗈𝗎 𝖽𝗈𝗇’𝗍 𝖽𝗈 𝖺𝗇𝗒𝗍𝗁𝗂𝗇𝗀 𝗈𝗋 𝗃𝗎𝗌𝗍 𝗌𝗍𝖺𝗋𝖾 𝖺𝗍 𝗆𝖾. 😟 /𝗉𝗈𝗌. 𝗂 𝗎𝗌𝗎𝖺𝗅𝗅𝗒 𝗋𝖾𝗀𝗋𝖾𝗍/𝖾𝗆𝖻𝖺𝗋𝗋𝖺𝗌𝗌𝖾𝖽 𝗈𝖿 𝗆𝗒𝗌𝖾𝗅𝖿 𝖤𝖲𝖯𝖤𝖢𝖨𝖠𝖫𝖫𝖸, 𝖢𝖧𝖠𝖳𝖳𝖨𝖭𝖦 𝖳𝖮 𝖯𝖤𝖮𝖯𝖫𝖤 😥𝖨𝖬 𝖠𝖭𝖷𝖨𝖮𝖴𝖲. 𝗌𝗐𝖾𝖺𝗍𝗌
 <p align="center">
-other stuff: (𝗐𝗂𝗉) 𝖩𝗎𝗌𝗍 𝖻𝖾𝖼𝖺𝗎𝗌𝖾 𝖨 𝗌𝗁𝗈𝗐 𝗅𝗈𝗏𝖾 𝗈𝗋 𝖺𝖿𝖿𝖾𝖼𝗍𝗂𝗈𝗇 𝗍𝗈 𝗒𝗈𝗎 𝖽𝗈𝖾𝗌𝗇’𝗍 𝗆𝖾𝖺𝗇 𝖨 𝖶𝖠𝖭𝖳 𝗍𝗈 𝖻𝖾 𝗒𝗈𝗎𝗋 𝗀𝖿/𝖻𝖿/𝗃𝗈𝗒𝖿𝗋𝗂𝖾𝗇𝖽,𝖾𝗍𝖼 𝗈𝗋 𝗍𝗁𝖺𝗍 𝖨 𝗁𝖺𝗏𝖾 𝖺 𝖼𝗋𝗎𝗌𝗁 𝗈𝗇 𝗒𝗈𝗎. 𝖭𝗈. 𝖣𝗈𝗇’𝗍 𝖾𝗏𝖾𝗇 𝗍𝗁𝗂𝗇𝗄 𝗅𝗂𝗄𝖾 𝗍𝗁𝖺𝗍 𝗇𝗈𝗇𝗈 𝗇𝗈 𝗇𝖺𝗁. 𝖠𝗇𝖽 𝗂𝖿 𝖨 𝖺𝖼𝗍 “𝖿𝗋𝖾𝖺𝗄𝗒” 𝗈𝗋 𝖾𝗑𝗍𝗋𝖺 𝖺𝗋𝗈𝗎𝗇𝖽 𝗒𝗈𝗎, 𝗍𝗁𝖺𝗍 𝖽𝗈𝖾𝗌𝗇’𝗍 𝗆𝖾𝖺𝗇 𝗍𝗁𝖺𝗍 𝖾𝗂𝗍𝗁𝖾𝗋. 𝖤𝗏𝖾𝗇 𝗂𝖿 𝖨’𝗆 𝗌𝗎𝗉𝖾𝗋 𝖼𝗅𝗂𝗇𝗀𝗒 𝗌𝗍𝗂𝗅𝗅 𝖺 𝗇𝗈. 𝖠𝗅𝗌𝗈.. 𝖽𝗈𝗇’𝗍 𝖿𝗅𝗂𝗋𝗍 𝗐𝗂𝗍𝗁 𝗆𝖾 𝗎𝗇𝗅𝖾𝗌𝗌 𝗐𝖾’𝗋𝖾 𝖼𝗅𝗈𝗌𝖾 𝖿𝗋𝗂𝖾𝗇𝖽𝗌, 𝖨’𝗆 𝖺𝖼𝗍𝗎𝖺𝗅𝗅𝗒 𝗂𝗇 𝗍𝗁𝖾 𝗆𝗈𝗈𝖽, 𝗈𝗋 𝗒𝗈𝗎’𝗋𝖾 𝗇𝗈𝗍 𝖻𝖾𝗂𝗇𝗀 𝖺 𝖼𝗋𝖾𝖾𝗉. 𝖣𝗈𝗇’𝗍 𝗉𝗎𝗌𝗁 𝗂𝗍 𝗍𝗈𝗈 𝖿𝖺𝗋… 𝖨 𝗆𝗂𝗀𝗁𝗍 𝖻𝗅𝗈𝖼𝗄 𝗒𝗈𝗎........… 𝖺𝗅𝗌𝗈.. 𝖼𝗈𝗏𝖾𝗋𝗂𝗇𝗀 𝗒𝗈𝗎 𝗆𝖾𝖺𝗇𝗌 𝖾𝖿𝖿𝖾𝖼𝗍𝗂𝗈𝗇.. 𝗁𝖾.𝗀𝗋𝗂𝗇𝗌. 𝗃𝗎𝗌𝗍 𝗍𝖾𝗅𝗅 𝗆𝖾 𝗍𝗈 𝗌𝗍𝗈𝗉 𝗂𝖿 𝗒𝗈𝗎'𝗋𝖾 𝗎𝗇𝖼𝗈𝗆𝖿𝗈𝗋𝗍𝖺𝖻𝗅𝖾 𝗈𝗄! 𝗍𝗁𝗎𝗆𝖻𝗌 𝗎𝗉 𝖺𝗇𝖽 𝖿𝖾𝗅𝗅. 𝗁𝗂. 𝗂 𝗅𝗂𝗄𝖾 𝖼𝖺𝗅𝗅𝗂𝗇𝗀 𝗉𝗉𝗅 𝗅𝖺𝗋𝗉𝖾𝗋𝗌 𝖼𝗎𝗓❤️❤️❤️❤️𝗂 𝗅𝗂𝗄𝖾 𝗍𝗁𝖾𝗆 𝗁𝖺𝗁𝖺 𝗉𝗅𝗌 𝖽𝗈𝗇𝗍 𝗅𝖺𝗋𝗉 𝗀𝗎𝗒𝗌 (𝗂 𝗌𝖺𝗒 𝖺𝗌 𝗂 𝗅𝖺𝗋𝗉 𝖣𝖾𝖺𝗍𝗁 𝖭𝗈𝗍𝖾)!! 𝗒𝗈𝗎 𝗀𝗎𝗒𝗌 𝖺𝗋𝖾 𝗌𝗎𝗉𝗉𝗈𝗋𝗍𝗂𝗇𝗀 𝗅𝖺𝗋𝗉𝗂𝗍𝗒!! /𝗃
+other stuff: (𝗐𝗂𝗉) 𝖩𝗎𝗌𝗍 𝖻𝖾𝖼𝖺𝗎𝗌𝖾 𝖨 𝗌𝗁𝗈𝗐 𝗅𝗈𝗏𝖾 𝗈𝗋 𝖺𝖿𝖿𝖾𝖼𝗍𝗂𝗈𝗇 𝗍𝗈 𝗒𝗈𝗎 𝖽𝗈𝖾𝗌𝗇’𝗍 𝗆𝖾𝖺𝗇 𝖨 𝖶𝖠𝖭𝖳 𝗍𝗈 𝖻𝖾 𝗒𝗈𝗎𝗋 𝗀𝖿/𝖻𝖿/𝗃𝗈𝗒𝖿𝗋𝗂𝖾𝗇𝖽,𝖾𝗍𝖼 𝗈𝗋 𝗍𝗁𝖺𝗍 𝖨 𝗁𝖺𝗏𝖾 𝖺 𝖼𝗋𝗎𝗌𝗁 𝗈𝗇 𝗒𝗈𝗎. 𝖭𝗈. 𝖣𝗈𝗇’𝗍 𝖾𝗏𝖾𝗇 𝗍𝗁𝗂𝗇𝗄 𝗅𝗂𝗄𝖾 𝗍𝗁𝖺𝗍 𝗇𝗈𝗇𝗈 𝗇𝗈 𝗇𝖺𝗁. 𝖠𝗇𝖽 𝗂𝖿 𝖨 𝖺𝖼𝗍 “𝖿𝗋𝖾𝖺𝗄𝗒” 𝗈𝗋 𝖾𝗑𝗍𝗋𝖺 𝖺𝗋𝗈𝗎𝗇𝖽 𝗒𝗈𝗎, 𝗍𝗁𝖺𝗍 𝖽𝗈𝖾𝗌𝗇’𝗍 𝗆𝖾𝖺𝗇 𝗍𝗁𝖺𝗍 𝖾𝗂𝗍𝗁𝖾𝗋. 𝖤𝗏𝖾𝗇 𝗂𝖿 𝖨’𝗆 𝗌𝗎𝗉𝖾𝗋 𝖼𝗅𝗂𝗇𝗀𝗒 𝗌𝗍𝗂𝗅𝗅 𝖺 𝗇𝗈. 𝖠𝗅𝗌𝗈.. 𝖽𝗈𝗇’𝗍 𝖿𝗅𝗂𝗋𝗍 𝗐𝗂𝗍𝗁 𝗆𝖾 𝗎𝗇𝗅𝖾𝗌𝗌 𝗐𝖾’𝗋𝖾 𝖼𝗅𝗈𝗌𝖾 𝖿𝗋𝗂𝖾𝗇𝖽𝗌, 𝖨’𝗆 𝖺𝖼𝗍𝗎𝖺𝗅𝗅𝗒 𝗂𝗇 𝗍𝗁𝖾 𝗆𝗈𝗈𝖽, 𝗈𝗋 𝗒𝗈𝗎’𝗋𝖾 𝗇𝗈𝗍 𝖻𝖾𝗂𝗇𝗀 𝖺 𝖼𝗋𝖾𝖾𝗉. 𝖣𝗈𝗇’𝗍 𝗉𝗎𝗌𝗁 𝗂𝗍 𝗍𝗈𝗈 𝖿𝖺𝗋… 𝖨 𝗆𝗂𝗀𝗁𝗍 𝖻𝗅𝗈𝖼𝗄 𝗒𝗈𝗎........… 𝖺𝗅𝗌𝗈.. 𝖼𝗈𝗏𝖾𝗋𝗂𝗇𝗀 𝗒𝗈𝗎 𝗆𝖾𝖺𝗇𝗌 𝖾𝖿𝖿𝖾𝖼𝗍𝗂𝗈𝗇.. 𝗁𝖾.𝗀𝗋𝗂𝗇𝗌. 𝗃𝗎𝗌𝗍 𝗍𝖾𝗅𝗅 𝗆𝖾 𝗍𝗈 𝗌𝗍𝗈𝗉 𝗂𝖿 𝗒𝗈𝗎'𝗋𝖾 𝗎𝗇𝖼𝗈𝗆𝖿𝗈𝗋𝗍𝖺𝖻𝗅𝖾 𝗈𝗄! 𝗍𝗁𝗎𝗆𝖻𝗌 𝗎𝗉 𝖺𝗇𝖽 𝖿𝖾𝗅𝗅. 𝗁𝗂. 𝗂 𝗅𝗂𝗄𝖾 𝖼𝖺𝗅𝗅𝗂𝗇𝗀 𝗉𝗉𝗅 𝗅𝖺𝗋𝗉𝖾𝗋𝗌 𝖼𝗎𝗓❤️❤️❤️❤️𝗂 𝗅𝗂𝗄𝖾 𝗍𝗁𝖾𝗆 𝗁𝖺𝗁𝖺 𝗉𝗅𝗌 𝖽𝗈𝗇𝗍 𝗅𝖺𝗋𝗉 𝗀𝗎𝗒𝗌 (𝗂 𝗌𝖺𝗒 𝖺𝗌 𝗂 𝗅𝖺𝗋𝗉 𝖣𝖾𝖺𝗍𝗁 𝖭𝗈𝗍𝖾)!! 𝗒𝗈𝗎 𝗀𝗎𝗒𝗌 𝖺𝗋𝖾 𝗌𝗎𝗉𝗉𝗈𝗋𝗍𝗂𝗇𝗀 𝗅𝖺𝗋𝗉𝗂𝗍𝗒!! /𝗃 hi uhm if you see me having "intensely/strictly IWEC" that mean im js really upset (can be from irl, moods wings, or just from your rude or horrible action to me. i bite.)
 
 
 
@@ -64,13 +64,6 @@ If you’ve crossed this boundary, I expect a sincere apology. Please respect my
 <p alight="center"> 
 same for this, if we’re friends or close friends and I’m not replying to you, it doesn’t mean I’m completely ignoring you. I might just be very busy, not paying attention, or I don’t know what to say. Sometimes I’m being extremely careful with my words and actions around you because I’m scared I might offend or upset you, especially if you have an IWEC (Interact With Extreme Caution). Please keep that in mind. 
 <p alight="center">
-whatever, this is probably how you see me mad byw /hj (i hate you that oje friend)
-<p alight="center">
-
-
-https://github.com/user-attachments/assets/9ee6c2cc-568c-49e6-a596-3ac19d6b8d4e
-
-
 ____
 <p alight="center">
 im very awkward when you vents. even if it just light ventung so yeah. but ill try my best to comfort you (i HATTTEEEEE conflict. if you/someone is venting about a problem that i can somehow "fix" (even if it isn't my fault), i will immediately over-apologize, same to a AGGRESSIVE vents with i immediate instinct is avoidance and physical retreat. However!! if the venting is too heavy, i would've gotten takes over. Instead of offering practical solutions or standard comfort, i might just say "oh im sorry for that.", or just simple poo. (doesn't mean i don't care or don't feel bad to you) js lik "stand awkwardly in the corner" cuz!p im terrified of saying the wrong thing and making the person who vent feel worse)
