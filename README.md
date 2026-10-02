@@ -77,7 +77,7 @@ im very awkward when you vents. even if it just light ventung so yeah. but ill t
 <p alight="center">
 (For friends, especially THOSE friend (im not hating your buht ok pls be more cautious toward me more/pos): please PLEASE ask for my permission before bringing up sensitive topics with me. I may get pretty uncomfortable, overwhelmed if you start venting without asking first ALSO please don’t be mad if I say no. I might feel very uncomfortable, especially when the topic is selfharm. but i will not blovk ypu (IMPORTANT!!: I dont talk about or encourage self-harm. If you’re struggling with those feelings. please reach out to someone you trust who can support you.) 
 <p alight="center">
-same for uncomfortable o sensitiv topics.. pls ask.. or just don't bring it up.. gulps. /pos.. 
+same for uncomfortable o sensitiv topics.. pls ask.. or just don't bring it up.. gulps. /pos..  also don't bring up religious-gods over everything. (except for hellenist its fine. ok? ok. i like my father apollo. yay. ok. but still. don't bring it up randomly.)
 
   </div>
 </details>
