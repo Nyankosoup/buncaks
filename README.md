@@ -1,3 +1,8 @@
+<p align="center">
+lazy art by me
+
+<p align="center">
+<img width="454" height="454" alt="Untitled134_20261008222003" src="https://github.com/user-attachments/assets/434b31ea-0590-4771-92ad-4476d01f601f" />
 
 <p align="center">
 ͜͝   ݁ ݂𓐇⑅ ͜  
