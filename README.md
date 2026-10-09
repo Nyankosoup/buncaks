@@ -3,11 +3,9 @@
 <p align="center">
 𝗃𝗎𝗌𝗍 𝗍𝗈 𝗅𝖾𝗍 𝗒𝗈𝗎 𝗄𝗇𝗈𝗐 𝗍𝗁𝖺𝗍 𝗂 𝖣𝖮𝖭𝖳 𝗄𝗇𝗈𝗐 𝗁𝗈𝗐 𝗍𝗈 𝗎𝗌𝖾 𝗀𝗂𝗍𝗁𝗎𝖻 𝗏𝖾𝗋𝗒 𝗐𝖾𝗅𝗅 𝖺𝗇𝖽 𝗍𝗁𝗂𝗌 𝗉𝖺𝗀𝖾 𝗂𝗌 𝗌𝗍𝗂𝗅𝗅 𝖶𝖨𝖯!! 𝖺𝗇𝖽 𝗍𝗁𝖺𝗍'𝗌 𝖺𝗅𝗅 𝗒𝗈𝗎 𝗀𝗎𝗒𝗌 𝗀𝗈𝗍 𝗂𝗇 𝗆𝗒 𝗉𝗋𝗈𝖿𝗂𝗅𝖾𝗌! /𝗉𝗈𝗌
 <p align="center">
-͜͝   ݁ ݂𓐇⑅ ͜ 
+͜͝   ݁ ݂𓐇⑅ ͜  
 <p align="center">
-𝖠𝗇𝗒𝗐𝗁𝗈, 𝗁𝗂𝗅𝗅𝗈! 𝖨’𝗆 𝖠𝗑𝖾𝗅 (𝗈𝗋 𝖡𝗎𝗇𝗇𝗒), 𝖺𝗇𝖽 𝗆𝗒 𝖻𝗂𝗋𝗍𝗁𝖽𝖺𝗒 𝗂𝗌 𝗈𝗇 𝖩𝗎𝗅𝗒 30𝗍𝗁! 𝖨’𝗆 𝗁𝖺𝗅𝖿 𝖨𝗇𝖽𝗈𝗇𝖾𝗌𝗂𝖺𝗇 𝖺𝗇𝖽 𝗁𝖺𝗅𝖿 𝖤𝗇𝗀𝗅𝗂𝗌𝗁, 𝖺𝗇𝖽 𝖨’𝗆 𝗅𝖾𝖺𝗋𝗇𝗂𝗇𝗀 𝖩𝖺𝗉𝖺𝗇𝖾𝗌𝖾! 𝖨’𝗆 𝖨𝖭𝖥𝖩/𝖯 𝖺𝗇𝖽 𝖺 4𝗐5. 𝖨 𝗀𝗈 𝖻𝗒 𝗍𝗁𝖾𝗒/𝖺𝗇𝗒, 𝖻𝗎𝗍 𝖨 𝗉𝗋𝖾𝖿𝖾𝗋 𝗍𝗁𝖾𝗒/𝗁𝖾 𝗈𝗋 𝖡𝗎𝗇𝗇𝗒/𝖡𝗎𝗇. 𝖨 𝗎𝗌𝗎𝖺𝗅𝗅𝗒 𝗀𝖾𝗍 𝗈𝖿𝖿𝗍𝖺𝖻 𝗂𝖿 𝖨 𝗀𝖾𝗍 𝖻𝗈𝗋𝖾𝖽, 𝖺𝗅𝗐𝖺𝗒𝗌 𝗐𝟤𝗂! 𝖨 𝗆𝗂𝗀𝗁𝗍 𝗋𝖾𝗌𝗉𝗈𝗇𝖽 𝗅𝖺𝗍𝖾𝗋 𝗍𝗁𝗈𝗎𝗀𝗁, 𝖾𝗏𝖾𝗇 𝗂𝖿 𝖨’𝗆 𝗈𝗇𝗅𝗂𝗇𝖾. 𝖨 𝗅𝗈𝗏𝖾 𝖽𝗋𝖺𝗐𝗂𝗇𝗀, 𝖺𝗇𝖽 𝖨’𝗏𝖾 𝖺𝗅𝗐𝖺𝗒𝗌 𝗐𝖺𝗇𝗍𝖾𝖽 𝗍𝗈 𝗆𝖺𝗄𝖾 𝗆𝗎𝗌𝗂𝖼, 𝖨’𝗆 𝗉𝗋𝖺𝖼𝗍𝗂𝖼𝗂𝗇𝗀!
-<p align="center">
-<img width="34" height="34" alt="Untitled62_20260825213031" src="https://github.com/user-attachments/assets/8dad374b-47c2-4738-9200-240d1b49287f" /> <img width="34" height="34" alt="Untitled62_20260825213109" src="https://github.com/user-attachments/assets/d6e3b654-bb83-4b4d-9d11-ea448e884fbe" />
+𝖠𝗇𝗒𝗐𝗁𝗈, 𝗁𝗂𝗅𝗅𝗈! 𝖨’𝗆 𝖠𝗑𝖾𝗅 (𝗈𝗋 𝖡𝗎𝗇𝗇𝗒), 𝖺𝗇𝖽 𝗆𝗒 𝖻𝗂𝗋𝗍𝗁𝖽𝖺𝗒 𝗂𝗌 𝗈𝗇 𝖩𝗎𝗅𝗒 30𝗍𝗁! 𝖨’𝗆 𝗁𝖺𝗅𝖿 𝖨𝗇𝖽𝗈𝗇𝖾𝗌𝗂𝖺𝗇 𝖺𝗇𝖽 𝗁𝖺𝗅𝖿 𝖤𝗇𝗀𝗅𝗂𝗌𝗁, 𝖺𝗇𝖽 𝖨’𝗆 𝗅𝖾𝖺𝗋𝗇𝗂𝗇𝗀 𝖩𝖺𝗉𝖺𝗇𝖾𝗌𝖾! 𝖨’𝗆 𝖨𝖭𝖥𝖩/𝖯 𝖺𝗇𝖽 𝖺 4𝗐5. 𝖨 𝗀𝗈 𝖻𝗒 𝗍𝗁𝖾𝗒/𝖺𝗇𝗒, 𝖻𝗎𝗍 𝖨 𝗉𝗋𝖾𝖿𝖾𝗋 𝗍𝗁𝖾𝗒/𝗁𝖾 𝗈𝗋 𝖡𝗎𝗇𝗇𝗒/𝖡𝗎𝗇. 𝖨 𝗅𝗈𝗏𝖾 𝖽𝗋𝖺𝗐𝗂𝗇𝗀, 𝖺𝗇𝖽 𝖨’𝗏𝖾 𝖺𝗅𝗐𝖺𝗒𝗌 𝗐𝖺𝗇𝗍𝖾𝖽 𝗍𝗈 𝗆𝖺𝗄𝖾 𝗆𝗎𝗌𝗂𝖼, 𝖨’𝗆 𝗉𝗋𝖺𝖼𝗍𝗂𝖼𝗂𝗇𝗀! <img width="34" height="34" alt="Untitled62_20260825213031" src="https://github.com/user-attachments/assets/8dad374b-47c2-4738-9200-240d1b49287f" /> <img width="34" height="34" alt="Untitled62_20260825213109" src="https://github.com/user-attachments/assets/d6e3b654-bb83-4b4d-9d11-ea448e884fbe" />
 
 <p align="center">
       ྀི.   ◟‿.                      ֪֪݃  
@@ -70,7 +68,7 @@ same for uncomfortable o sensitiv topics.. pls ask.. or just don't bring it up..
 <div align="center">
 <details>
   <summary><ins>Pony Town</ins></summary>
-c+h+k freely!!! Just don’t sneeze on me strangers.. (unless we int be4 or just on accident its fine... idc,,, honestly). dont cover my le ponies on purpose, i just wanted to observe me poni bebeh. smiles. cover is ok from frind idc also yyuhh you can cover me tho if im offtb heh but i will SLIDE away eventually when i yes. uhh. I’m always offtab (busy all the time lek doing something especially for writijg fanfics r js doing hw ok, or just sleeping. im SLEEPY all the time lol). Like I said, always yes always w2i. I might respond late. uguhuhgagaguglu. BADDD WIFIIII (somtikes.). also if i move by accident its probably causes by my bnuyy (SHUTUPP i love him ) or js me being half-aslep. . .. . (or its because of my dad. worse. ☹️) i finf peopl cute when they cud me. 🥹NOA CAUSE that is so c❤️❤️ut❤️❤️❤️❤️ee aww make me wanna squi. im not good at maintaining relationships.
+c+h+k freely!!! Just don’t sneeze on me strangers.. (unless we int be4 or just on accident its fine... idc,,, honestly). dont cover my le ponies on purpose, i just wanted to observe me poni bebeh. smiles. cover is ok from frind idc also yyuhh you can cover me tho if im offtb heh but i will SLIDE away eventually when i yes. uhh. I’m always offtab (busy all the time lek doing something especially for writijg fanfics r js doing hw ok, or just sleeping. im TIREDDDDDD all the time lol). Like I said, always yes always w2i. BADDD WIFIIII (somtikes.). or js me being half-aslep. . .. . 
 <p align="center">
 <img width="305" height="200" alt="IMG_6171" src="https://github.com/user-attachments/assets/01ec8dfe-10e4-44eb-b3a4-f742a01856a4" />
 <p align="center">
