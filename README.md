@@ -2,7 +2,7 @@
 <p align="center">
 ͜͝   ݁ ݂𓐇⑅ ͜  
 <p align="center">
- hi,,, im Axel (or bunny.)... im a 4w5 infj/p and my birthday is on July 30.. yes.. im indonesian, so uhh that explain why my English is a bit awkward or. something else. and currently im learning Japanese.. yeah. ok. i go by they/he but i prefer they/bun for myself but thats ok whatsover i dont care what you gonna call me i just go by any pronouns. im stillll a minor ok? ok. dont be weird on me.. unless friend.. 😹😹😹😹i love my f/o frank.
+ hi,,, im Axel (or bunny.)... im a 4w5 infj/p and my birthday is on July 30.. yes.. im indonesian, so uhh that explain why my English is a bit awkward or. something else. and currently im learning Japanese.. yeah. ok. i go by they/he but i prefer they/bun for myself but thats ok whatsover i dont care what you gonna call me i just go by any pronouns. im stillll a minor ok? ok. dont be weird on me.. unless friend.. 😹😹😹😹i love my f/o frank. im a femboy yes. and im asexual. o? ok.
 <p align="center">
       ྀི.   ◟‿.                      ֪֪݃  
 <p align="center">
