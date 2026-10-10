@@ -89,8 +89,8 @@ https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc?
 <details>
   <summary><ins>wanna see my beautiful son (art by me)</ins></summary>
  <p align="center">
-  <img width="2904" height="2568" alt="Untitled87_Restored_20261010174315" src="https://github.com/user-attachments/assets/d9cdd366-1ac7-4951-a06f-8adc87f10de2" />
-<p align="center">
+ <img width="2904" height="2568" alt="Untitled87_Restored_20261010175607" src="https://github.com/user-attachments/assets/d38588cc-7452-4858-bbf5-f093604a0edf" />
+
 im so proud of this. feel prideful,, yes
 
   </div>
