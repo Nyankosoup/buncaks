@@ -91,7 +91,7 @@ https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc?
  <p align="center">
  <img width="2904" height="2568" alt="Untitled87_Restored_20261010175607" src="https://github.com/user-attachments/assets/d38588cc-7452-4858-bbf5-f093604a0edf" />
 
-im so proud of this. feel prideful,, yes
+im so proud of this. feel prideful,, yes (shii i fogrot abt 'i **forgot** what ive become thing sorry'
 
   </div>
 </details>
