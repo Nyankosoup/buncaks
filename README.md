@@ -82,3 +82,16 @@ https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc?
 
   </div>
 </details>
+
+
+  <p align="center">
+<div align="center">
+<details>
+  <summary><ins>wanna see my beautiful son (art by me)</ins></summary>
+ <p align="center">
+  <img width="2904" height="2568" alt="Untitled87_Restored_20261010174315" src="https://github.com/user-attachments/assets/d9cdd366-1ac7-4951-a06f-8adc87f10de2" />
+<p align="center">
+im so proud of this. feel prideful,, yes
+
+  </div>
+</details>
