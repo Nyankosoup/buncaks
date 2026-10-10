@@ -2,7 +2,8 @@
 lazy art by me
 
 <p align="center">
-<img width="454" height="454" alt="Untitled137_20261010173138" src="https://github.com/user-attachments/assets/114716c7-bf33-4e62-883d-ddfaa93dad8f" />
+<img width="454" height="454" alt="Untitled137_20261010173801" src="https://github.com/user-attachments/assets/07cf06fb-d737-4976-9c6f-3fe85ce31cf3" />
+
 
 
 <p align="center">
