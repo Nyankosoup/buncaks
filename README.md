@@ -9,7 +9,7 @@ lazy art by me
 <p align="center">
 ͜͝   ݁ ݂𓐇⑅ ͜  
 <p align="center">
- hi,,, im Axel (or bunny.)... im a 4w5 infj/p and my birthday is on July 30.. yes.. im indonesian, so uhh that explain why my English is a bit awkward or. something else. and currently im learning Japanese.. yeah. ok. i go by they/he but i prefer they/bun for myself but thats ok whatsover i dont care what you gonna call me i just go by any pronouns. im stillll a minor ok? ok. dont be weird on me.. unless friend.. 😹😹😹😹i love my f/o frank. im a femboy yes. and im asexual. o? ok.
+ hi,,, im Axel (or bunny.)... im a 4w5 infj/p and my birthday is on July 30.. yes.. im indonesian, so uhh that explain why my English is a bit awkward or. something else. and currently im learning Japanese.. yeah. ok. i go by they/he but i prefer they/bun for myself but thats ok whatsover i dont care what you gonna call me i just go by any pronouns. im stillll a minor (not 12-. GUYSE. I SWERA TO APOLLO) ok? ok. dont be weird on me.. unless friend.. 😹😹😹😹i love my f/o frank. im a femboy yes (do not s3xualize me.). and im asexual. o? ok.
 <p align="center">
       ྀི.   ◟‿.                      ֪֪݃  
 <p align="center">
@@ -64,6 +64,9 @@ im very awkward when you vents. even if it just light ventung so yeah. but ill t
 (For friends, especially THOSE friend (im not hating your buht ok pls be more cautious toward me more/pos): please PLEASE ask for my permission before bringing up sensitive topics with me. I may get pretty uncomfortable, overwhelmed if you start venting without asking first ALSO please don’t be mad if I say no. I might feel very uncomfortable, especially when the topic is selfharm. but i will not blovk ypu (IMPORTANT!!: I dont talk about or encourage self-harm. If you’re struggling with those feelings. please reach out to someone you trust who can support you, im not the exact person here to comfort you "professionally".) 
 <p alight="center">
 same for uncomfortable o sensitiv topics.. pls ask.. or just don't bring it up.. gulps. /pos.. 
+____
+<p align="center">
+dont ever mention about b3lts (even worser if you threaten me with that even if it was playful. i despise you.), touches (in a very BAD way, intimate way). its triggering me.
 
   </div>
 </details>
