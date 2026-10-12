@@ -66,7 +66,7 @@ im very awkward when you vents. even if it just light ventung so yeah. but ill t
 same for uncomfortable o sensitiv topics.. pls ask.. or just don't bring it up.. gulps. /pos.. 
 ____
 <p align="center">
-dont ever mention about b3lts (even worser if you threaten me with that even if it was playful. i despise you.), touches (in a very BAD way, intimate way). its triggering me.
+dont ever mention about b3lts (even worser if you threaten me with that even if it was playful. i despise you.), touches (in a very BAD way, EROTICLY way). its triggering me.
 
   </div>
 </details>
