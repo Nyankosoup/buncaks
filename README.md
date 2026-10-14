@@ -1,10 +1,5 @@
 <p align="center">
-lazy art by me
-
-<p align="center">
-<img width="454" height="454" alt="Untitled137_20261010173801" src="https://github.com/user-attachments/assets/07cf06fb-d737-4976-9c6f-3fe85ce31cf3" />
-
-
+hi.
 
 <p align="center">
 ͜͝   ݁ ݂𓐇⑅ ͜  
@@ -70,7 +65,7 @@ dont ever mention about b3lts (even worser if you threaten me with that even if 
 <p align="center">
 ____
 <p align="center">
-im sorry if i do anything else bad. idk things abt it, im still trying to change. :/
+I’m sorry if I did anything that upset you or made you disapprove. I don’t really know much about it yet, but I’m trying to change. :/ If you tell me what I did wron I’ll do my best to grow and improve. i shouldn't have to do that tho.
 
   </div>
 </details>
