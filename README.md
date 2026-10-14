@@ -65,7 +65,7 @@ dont ever mention about b3lts (even worser if you threaten me with that even if 
 <p align="center">
 ____
 <p align="center">
-I’m sorry if I did anything that upset you or made you disapprove. I don’t really know much about it yet, but I’m trying to change. :/ If you tell me what I did wron I’ll do my best to grow and improve. i shouldn't have to do that tho.
+I’m sorry if I did anything that upset you or made you disapprove. I don’t really know much about it yet, but I’m trying to change. :/ If you tell me what I did wron I’ll do my best to grow and improve. i shouldn't have to do that tho. im struggling.
 
   </div>
 </details>
