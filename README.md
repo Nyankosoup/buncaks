@@ -4,7 +4,7 @@ hi.
 <p align="center">
 ͜͝   ݁ ݂𓐇⑅ ͜  
 <p align="center">
- hi,,, im Axel (or bunny.)... im a 4w5 infj/p and my birthday is on July 30.. yes.. im indonesian, so uhh that explain why my English is a bit awkward or. something else. and currently im learning Japanese.. yeah. ok. i go by they/he but i prefer they/bun for myself but thats ok whatsover i dont care what you gonna call me i just go by any pronouns. im stillll a minor (not 12-. GUYSE. I SWERA TO APOLLO) ok? ok. dont be weird on me.. unless friend.. 😹😹😹😹i love my f/o frank. im a femboy yes (do not s3xualize me.). and im asexual. o? ok.
+ hi,,, im Axel (or bunny.)... im a 4w5 infj/p and my birthday is on July 30.. yes.. im indonesian, so uhh that explain why my English is a bit awkward or. something else. and currently im learning Japanese.. yeah. ok. i go by they/he but i prefer they/bun for myself but thats ok whatsover i dont care what you gonna call me i just go by any pronouns. im stillll a minor (not 14- ok.) ok? ok. dont be weird on me.. unless friend.. i guess. but i still warn them tho. i love my f/o frank. im a femboy yes (do not s3xualize me or anything.). and im asexual. o? ok.
 <p align="center">
       ྀི.   ◟‿.                      ֪֪݃  
 <p align="center">
@@ -65,7 +65,7 @@ dont ever mention about b3lts (even worser if you threaten me with that even if 
 <p align="center">
 ____
 <p align="center">
-I’m sorry if I did anything that upset you or made you disapprove. I don’t really know much about it yet, but I’m trying to change. :/ If you tell me what I did wron I’ll do my best to grow and improve. i shouldn't have to do that tho. im struggling. ((this is(?) <b>not meant</b> to guilt-trip you or to make you feel ashamed))
+I’m sorry if I did anything that upset you or made you disapprove. I don’t really know much about it yet, but I’m trying to change. :/ If you tell me what I did wron I’ll do my best to grow and improve. i shouldn't have to do that. im struggling. (this is(?) <b>not meant</b> to guilt-trip you nor to make you feel ashamed abt this)
 
   </div>
 </details>
