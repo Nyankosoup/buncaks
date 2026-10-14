@@ -64,9 +64,13 @@ im very awkward when you vents. even if it just light ventung so yeah. but ill t
 (For friends, especially THOSE friend (im not hating your buht ok pls be more cautious toward me more/pos): please PLEASE ask for my permission before bringing up sensitive topics with me. I may get pretty uncomfortable, overwhelmed if you start venting without asking first ALSO please don’t be mad if I say no. I might feel very uncomfortable, especially when the topic is selfharm. but i will not blovk ypu (IMPORTANT!!: I dont talk about or encourage self-harm. If you’re struggling with those feelings. please reach out to someone you trust who can support you, im not the exact person here to comfort you "professionally".) 
 <p alight="center">
 same for uncomfortable o sensitiv topics.. pls ask.. or just don't bring it up.. gulps. /pos.. 
+<p align="center">
+____
+dont ever mention about b3lts (even worser if you threaten me with that even if it was playful. i despise you.), Highly private intimacy that you been on with your gf/bf/idk mates just. dont please :/ (ill give you a warning if you don't know and its ok :)! just becareful next time /gen. unless close friends/friend but i still warn them tho if i get a little too uncomfortable). both triggers me.
+<p align="center">
 ____
 <p align="center">
-dont ever mention about b3lts (even worser if you threaten me with that even if it was playful. i despise you.), Highly private intimacy that you been on with your gf/bf/idk mates just. dont please :/ (ill give you a warning if you don't know and its ok :)! just becareful next time /gen. unless close friends/friend but i still warn them tho if i get a little too uncomfortable). both triggers me.
+im sorry if i do anything else bad. idk things abt it, im still trying to change. :/
 
   </div>
 </details>
